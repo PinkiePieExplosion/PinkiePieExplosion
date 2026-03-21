@@ -48,13 +48,10 @@ _____________________________
 I can make Github repositories!: Examples below!! (Whisper me on pt for discord info to get one! I do them for free for now or for a ponytown skin/art!)
 
 <p align="center">
-No github user
+GitHub User: TheUnthinkableMiracle
 
  <p align="center"> 
 <img width="385" height="855" alt="image" src="https://github.com/user-attachments/assets/4a168c1f-926b-4934-935e-0c6e51f393b1" /> <img width="385" height="855" alt="image" src="https://github.com/user-attachments/assets/af05f7b2-e434-488a-b2fc-bb7a2ebdcc00" />
-
-
-
 
 ___________________________________________________________
 
@@ -63,10 +60,6 @@ GitHub User: @Hxrlequinn
 
  <p align="center"> 
 <img width="334" height="725" alt="image" src="https://github.com/user-attachments/assets/172797f9-95ff-46c3-9cd2-981c73295f54" /> <img width="334" height="725" alt="image" src="https://github.com/user-attachments/assets/a2690267-fce8-4a43-aa30-1723fb38f298" /> <img width="334" height="725" alt="image" src="https://github.com/user-attachments/assets/451c4583-255d-430f-8dd3-a090a43b1056" /> <img width="334" height="725" alt="image" src="https://github.com/user-attachments/assets/93547fc1-7304-4995-974c-6cc37b720317" />
-
-
-
-
 
 ___________________________________________________________
 
