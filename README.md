@@ -17,7 +17,7 @@
 
 I am 14 to 15+!
 
-I am Panromantic, Androsexual, Nonbinary (strictly they/them only) & I hv a bf!
+I am Panromantic, Almondsexual, Nonbinary (strictly they/them only) & I hv a bf!
 
 I am also a Kemonomimi dog!! <img width="20" height="10" alt="IMG-1839" src="https://github.com/user-attachments/assets/f2c5d271-0580-4c86-bedc-1f58e2449854" /> 
  
