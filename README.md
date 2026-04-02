@@ -11,8 +11,6 @@
 
 
 
-
-
 ![IMG_8006](https://github.com/user-attachments/assets/38c089e8-eea0-4b80-9b77-a7ce6ec92351) Hi my name is Pinkie Pie!
 
 I am 14 to 15+!
@@ -64,7 +62,7 @@ GitHub User: @Hxrlequinn
 ___________________________________________________________
 
 <p align="center"> 
-GitHub user: @bumblebeez-ko
+GitHub user: none. (not associated w/ - got a document made on them)
 
 <p align="center"> 
 <img width="334" height="725" alt="image" src="https://github.com/user-attachments/assets/347e427f-634b-407b-82d4-a1d3c3e835ef" /> <img width="334" height="725" alt="image" src="https://github.com/user-attachments/assets/18b05dae-9f3f-423f-982c-c6ae5689da68" /> <img width="334" height="725" alt="image" src="https://github.com/user-attachments/assets/3fde1f90-c20d-4eff-a4ad-f8145d818355" /> <img width="334" height="725" alt="image" src="https://github.com/user-attachments/assets/d2ba37f9-5039-4817-b903-bce71d30c45e" />
