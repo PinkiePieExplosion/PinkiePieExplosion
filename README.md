@@ -7,13 +7,11 @@
   </a>
 </p>
 
-<img src="https://64.media.tumblr.com/2b944f55dd78365042ce7ff8bcc262c4/270fc90b1b30ec55-30/s75x75_c1/6fe7df114cce2c3618879742628494957dd84bf5.gif" alt="419 | &quot;pink&quot;"/> 
+<img src="https://64.media.tumblr.com/2b944f55dd78365042ce7ff8bcc262c4/270fc90b1b30ec55-30/s75x75_c1/6fe7df114cce2c3618879742628494957dd84bf5.gif" alt="419 | &quot;pink&quot;"/> <img src="https://files.catbox.moe/gydhd0.gif"/> <img src="https://files.catbox.moe/epqln7.gif"/>
 
 
 <img src="https://files.catbox.moe/5hf9u3.gif" alt="168 | &quot;kemonomimi&quot;"/> <img src="https://files.catbox.moe/f25f0n.gif" alt="170 | &quot;canine&quot;"/> <img src="https://64.media.tumblr.com/eeb8ab4735f3a82de5e5d2b8fbb9bfe5/9a3604103dd19144-5a/s75x75_c1/a91e45cf8aed143d0bd6ecc8848e3969b8564465.gif" alt="304 | &quot;puppy&quot;"/> <img src="https://64.media.tumblr.com/ff42a857d925d45af458a0e67a73c238/73ee03599578a63c-28/s75x75_c1/ab147d94cfb23ce52f11e06b315c2652fa2fd666.gif" alt="357 | &quot;paw&quot;"/> ![tumblr_f933017893eaf4f890762302524cfa73_b4b1ec58_250](https://github.com/user-attachments/assets/3f22b1f5-a19f-4f57-be96-842c4ef286c9) ![tumblr_9de2ff474bf4912c73126da2789e443e_b2ed6de0_250](https://github.com/user-attachments/assets/12d12578-41a2-4c64-985a-f84cfe47fb01) ![tumblr_170e3ad92170ceae26384e4c08e22696_c67da3d9_250](https://github.com/user-attachments/assets/b75c9c3f-7f3b-4ae4-9fd3-15252a7e105a) ![tumblr_14df5fe5a6b3bdc345418efa4d879a16_ecd77c34_250](https://github.com/user-attachments/assets/a215358b-b861-4558-8019-69c1c7080277) ![tumblr_bfe257c186ae6704d5899bfd86ca681d_7ef28a4c_250](https://github.com/user-attachments/assets/f88d56d2-e083-423e-a74f-97e359277cce) ![tumblr_af0c9af57645482b4a8844aa05c97bbc_d9f8e63f_250](https://github.com/user-attachments/assets/5afc91b1-c705-4e4e-8558-335270acc552) ![tumblr_078ef274a629ef87faca82939314533a_9e2fe46d_250](https://github.com/user-attachments/assets/4d1b0e8d-02ea-44a9-a8af-541c3cc6155a) 
 
-
-<img src="https://files.catbox.moe/gydhd0.gif"/> <img src="https://files.catbox.moe/epqln7.gif"/>
 
 
 
@@ -40,7 +38,7 @@ I am very active on Ponytown and Discord!
 As you can probably tell I LOVE Pinkie Pie!! 
 
 <p align="center">
-credit @lavendergalactic on Tumblr for blinkies.  
+credit @lavendergalactic & anyone else on Tumblr for blinkies.  
 
 <img width="1000" height="100" alt="image-2024-05-24-133746247" src="https://github.com/user-attachments/assets/7eb11f41-2146-496a-a884-c7e188211837" />
 
