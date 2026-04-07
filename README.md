@@ -84,12 +84,19 @@ ___________________________________________________________
 <p align="center"> 
 GitHub user: @jaydenn
 
-<p align="center"> <img width="381" height="649" alt="unnamed" src="https://github.com/user-attachments/assets/6e4c9310-28e2-44e2-a58a-3961c5ae2279" /> <img width="355" height="649" alt="unnamed" src="https://github.com/user-attachments/assets/87d83122-c5df-426a-89e2-6c3f580f91c4" /> <img width="363" height="649" alt="unnamed" src="https://github.com/user-attachments/assets/64fc4799-d53e-42a8-9819-1a869a06c926" /> <img width="360" height="648" alt="unnamed" src="https://github.com/user-attachments/assets/0f04f875-dc01-43b8-a057-a99367e08b81" /> <img width="403" height="649" alt="unnamed" src="https://github.com/user-attachments/assets/0081a89d-95fe-49d1-b2a1-5f3fbe809f60" />
+<p align="center">
+<img width="381" height="649" alt="unnamed" src="https://github.com/user-attachments/assets/6e4c9310-28e2-44e2-a58a-3961c5ae2279" /> <img width="355" height="649" alt="unnamed" src="https://github.com/user-attachments/assets/87d83122-c5df-426a-89e2-6c3f580f91c4" /> <img width="363" height="649" alt="unnamed" src="https://github.com/user-attachments/assets/64fc4799-d53e-42a8-9819-1a869a06c926" /> <img width="360" height="648" alt="unnamed" src="https://github.com/user-attachments/assets/0f04f875-dc01-43b8-a057-a99367e08b81" /> <img width="403" height="649" alt="unnamed" src="https://github.com/user-attachments/assets/0081a89d-95fe-49d1-b2a1-5f3fbe809f60" />
 
 ___________________________________________________________
 
 <p align="center"> 
-GitHub user: @GlamRocker-CO
+GitHub user: @GlamRockers-CO
+
+<p align="center"> 
+<img width="922" height="725" alt="image" src="https://github.com/user-attachments/assets/91bd16b1-d95e-4a01-9f57-44db4ef4bab4" /> ><img width="891" height="725" alt="image" src="https://github.com/user-attachments/assets/14519aac-a0a6-4082-bed9-7bd56edd4d6d" />
+
+
+___________________________________________________________
 
 <img width="1000" height="100" alt="image-2024-05-24-133746247" src="https://github.com/user-attachments/assets/7eb11f41-2146-496a-a884-c7e188211837" /> 
 
