@@ -7,6 +7,8 @@
   </a>
 </p>
 
+![](https://komarev.com/ghpvc/?username=PinkiePieExplosion-CO&label=Puppies!&color=ff70ae)
+
 <img src="https://64.media.tumblr.com/2b944f55dd78365042ce7ff8bcc262c4/270fc90b1b30ec55-30/s75x75_c1/6fe7df114cce2c3618879742628494957dd84bf5.gif" alt="419 | &quot;pink&quot;"/> <img src="https://files.catbox.moe/gydhd0.gif"/> <img src="https://files.catbox.moe/epqln7.gif"/>
 
 
