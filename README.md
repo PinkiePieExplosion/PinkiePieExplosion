@@ -10,6 +10,9 @@
 
 ![](https://komarev.com/ghpvc/?username=PinkiePieExplosion-CO&label=Puppies!&color=ff70ae) 🦴 <img alt="GitHub followers" src="https://img.shields.io/github/followers/PinkiePieExplosion?style=flat&label=Friendos!&color=ff70ae">
 
+ <p align="center"> 
+  <img width="1000" height="500" alt="image-2024-05-26-153929846" src="https://github.com/user-attachments/assets/6755bf62-f292-426f-88e6-9771f8de55bf" />
+
 ![68747470733a2f2f66696c652e67617264656e2f614c63556d4e5a427654475979584a6c2f61646864737761672e676966](https://github.com/user-attachments/assets/7b677979-a5d8-4297-accf-bc2e1a71c0cd) ![68747470733a2f2f66696c652e67617264656e2f614c63556d4e5a427654475979584a6c2f616e786965747968617665722e676966](https://github.com/user-attachments/assets/e8a6b4ce-198a-4719-af23-4db17f3ecdc8) ![blinkiesCafe-sA](https://github.com/user-attachments/assets/21af64a5-1483-459e-af0f-3187f1827078) ![blinkiesCafe-n8](https://github.com/user-attachments/assets/ecbec249-5125-416f-a139-dbf803ab4d5b)
 
 <img src="https://files.catbox.moe/5hf9u3.gif" alt="168 | &quot;kemonomimi&quot;"/> <img src="https://files.catbox.moe/f25f0n.gif" alt="170 | &quot;canine&quot;"/> <img src="https://64.media.tumblr.com/eeb8ab4735f3a82de5e5d2b8fbb9bfe5/9a3604103dd19144-5a/s75x75_c1/a91e45cf8aed143d0bd6ecc8848e3969b8564465.gif" alt="304 | &quot;puppy&quot;"/> <img src="https://64.media.tumblr.com/ff42a857d925d45af458a0e67a73c238/73ee03599578a63c-28/s75x75_c1/ab147d94cfb23ce52f11e06b315c2652fa2fd666.gif" alt="357 | &quot;paw&quot;"/> ![tumblr_f933017893eaf4f890762302524cfa73_b4b1ec58_250](https://github.com/user-attachments/assets/3f22b1f5-a19f-4f57-be96-842c4ef286c9) ![tumblr_9de2ff474bf4912c73126da2789e443e_b2ed6de0_250](https://github.com/user-attachments/assets/12d12578-41a2-4c64-985a-f84cfe47fb01) ![blinkiesCafe-G7](https://github.com/user-attachments/assets/3cf89055-6bdb-4bd4-97a2-eed744ad4f94) ![tumblr_170e3ad92170ceae26384e4c08e22696_c67da3d9_250](https://github.com/user-attachments/assets/b75c9c3f-7f3b-4ae4-9fd3-15252a7e105a) ![tumblr_14df5fe5a6b3bdc345418efa4d879a16_ecd77c34_250](https://github.com/user-attachments/assets/a215358b-b861-4558-8019-69c1c7080277) ![tumblr_bfe257c186ae6704d5899bfd86ca681d_7ef28a4c_250](https://github.com/user-attachments/assets/f88d56d2-e083-423e-a74f-97e359277cce) ![tumblr_af0c9af57645482b4a8844aa05c97bbc_d9f8e63f_250](https://github.com/user-attachments/assets/5afc91b1-c705-4e4e-8558-335270acc552) ![68747470733a2f2f6d697373736b756e6b792d67726170686963732e6e656f6369746965732e6f72672f6173736574732f67726170686963732f626c696e6b6965732f6d6973632f7261626965732e676966](https://github.com/user-attachments/assets/e5789cd8-5ed0-427c-8ea8-d71b5e89f91e) ![tumblr_078ef274a629ef87faca82939314533a_9e2fe46d_250](https://github.com/user-attachments/assets/4d1b0e8d-02ea-44a9-a8af-541c3cc6155a) 
@@ -22,8 +25,7 @@
 
 ![68747470733a2f2f61647269616e73626c696e6b6965636f6c6c656374696f6e2e6e656f6369746965732e6f72672f627574746f6e732f613130312e6a7067](https://github.com/user-attachments/assets/c893e017-68e6-4fe3-8e34-717bff8cb1e6) ![555674442-70a29c25-512c-42e0-a3f1-0e14302646ff](https://github.com/user-attachments/assets/31da74dc-3e36-4a22-ba90-1888c8a5d556)
 
-
-![IMG_8006](https://github.com/user-attachments/assets/38c089e8-eea0-4b80-9b77-a7ce6ec92351) Hi my name is Pinkie Pie!
+Hi my name is Pinkie Pie!
 
 I am 14 to 15+!
 
@@ -36,8 +38,7 @@ My Kemonomimi type is German Shepard, Golden Retriever & Orange cat
    <p align="left"> 
   <img width="500" height="33" alt="image-2024-05-26-153929846" src="https://github.com/user-attachments/assets/6755bf62-f292-426f-88e6-9771f8de55bf" /> 
 
-
-![IMG_8006](https://github.com/user-attachments/assets/38c089e8-eea0-4b80-9b77-a7ce6ec92351) Timezone: (UTC -05:00)
+Timezone: (UTC -05:00)
 
 I am from the USA but I am also Irish & Ukrainian & some other stuff!
 
