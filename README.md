@@ -7,7 +7,7 @@
   </a>
 </p>
 
-![](https://komarev.com/ghpvc/?username=PinkiePieExplosion-CO&label=Puppies!&color=ff70ae)
+![](https://komarev.com/ghpvc/?username=PinkiePieExplosion-CO&label=Puppies!&color=ff70ae) <img alt="GitHub followers" src="https://img.shields.io/github/followers/PinkiePieExplosion?style=flat&label=Friends&color=ff70ae">
 
 ![68747470733a2f2f66696c652e67617264656e2f614c63556d4e5a427654475979584a6c2f61646864737761672e676966](https://github.com/user-attachments/assets/7b677979-a5d8-4297-accf-bc2e1a71c0cd) ![68747470733a2f2f66696c652e67617264656e2f614c63556d4e5a427654475979584a6c2f616e786965747968617665722e676966](https://github.com/user-attachments/assets/e8a6b4ce-198a-4719-af23-4db17f3ecdc8) ![blinkiesCafe-sA](https://github.com/user-attachments/assets/21af64a5-1483-459e-af0f-3187f1827078) ![blinkiesCafe-n8](https://github.com/user-attachments/assets/ecbec249-5125-416f-a139-dbf803ab4d5b)
 
