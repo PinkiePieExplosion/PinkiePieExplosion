@@ -7,7 +7,6 @@
   </a>
 </p>
 
-
 ![](https://komarev.com/ghpvc/?username=PinkiePieExplosion-CO&label=Puppies!&color=ff70ae) 🦴 <img alt="GitHub followers" src="https://img.shields.io/github/followers/PinkiePieExplosion?style=flat&label=Friendos!&color=ff70ae">
 
  <p align="center"> 
@@ -45,6 +44,9 @@ I am from the USA but I am also Irish & Ukrainian & some other stuff!
 I am very active on Ponytown and Discord!
 
 As you can probably tell I LOVE Pinkie Pie!! 
+
+ <p align="center"> 
+  <img width="1000" height="500" alt="image-2024-05-26-153929846" src="https://github.com/user-attachments/assets/6755bf62-f292-426f-88e6-9771f8de55bf" />
 
 <p align="center">
 credit @lavendergalactic & anyone else on Tumblr for blinkies.  
