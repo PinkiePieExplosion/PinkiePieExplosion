@@ -30,7 +30,7 @@ I am Panromantic, Almondsexual, Nonbinary (strictly they/them only)
 
 I am also a Kemonomimi dog!! <img width="20" height="10" alt="IMG-1839" src="https://github.com/user-attachments/assets/f2c5d271-0580-4c86-bedc-1f58e2449854" /> 
  
-My Kemonomimi type is German Shepard, Golden Retriever & Orange cat
+My Kemonomimi type is German Shepard, Golden Retriever & Orange cat (maybe more? idrk)
 
    <p align="left"> 
   <img width="500" height="33" alt="image-2024-05-26-153929846" src="https://github.com/user-attachments/assets/6755bf62-f292-426f-88e6-9771f8de55bf" /> 
