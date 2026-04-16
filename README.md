@@ -7,7 +7,10 @@
   </a>
 </p>
 
+<div align="center">
+  
 ![](https://komarev.com/ghpvc/?username=PinkiePieExplosion-CO&label=Puppies!&color=ff70ae) 🦴 <img alt="GitHub followers" src="https://img.shields.io/github/followers/PinkiePieExplosion?style=flat&label=Pupperonis!&color=ff70ae">
+</div>
 
  <p align="center"> 
   <img width="1000" height="500" alt="image-2024-05-26-153929846" src="https://github.com/user-attachments/assets/6755bf62-f292-426f-88e6-9771f8de55bf" />
