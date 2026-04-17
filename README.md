@@ -13,7 +13,7 @@
 </div>
 
  <p align="center"> 
-  <img width="1000" height="500" alt="image-2024-05-26-153929846" src="https://github.com/user-attachments/assets/6755bf62-f292-426f-88e6-9771f8de55bf" />
+  <img width="1000" height="70" alt="image-2024-05-26-153929846" src="https://github.com/user-attachments/assets/6755bf62-f292-426f-88e6-9771f8de55bf" />
 
 ![68747470733a2f2f66696c652e67617264656e2f614c63556d4e5a427654475979584a6c2f61646864737761672e676966](https://github.com/user-attachments/assets/7b677979-a5d8-4297-accf-bc2e1a71c0cd) ![68747470733a2f2f66696c652e67617264656e2f614c63556d4e5a427654475979584a6c2f616e786965747968617665722e676966](https://github.com/user-attachments/assets/e8a6b4ce-198a-4719-af23-4db17f3ecdc8) <img width="150" height="20" alt="web archive org---web---20090829234627---http_------geocities com---kricketskorner---SABlinkie" src="https://github.com/user-attachments/assets/55608e6b-6ffb-46fd-9ac0-95d5d98c5c07" /> ![blinkiesCafe-sA](https://github.com/user-attachments/assets/21af64a5-1483-459e-af0f-3187f1827078) ![blinkiesCafe-n8](https://github.com/user-attachments/assets/ecbec249-5125-416f-a139-dbf803ab4d5b) 
 
@@ -49,7 +49,7 @@ I am very active on Ponytown and Discord!
 As you can probably tell I LOVE Pinkie Pie!! 
 
  <p align="center"> 
-  <img width="1000" height="500" alt="image-2024-05-26-153929846" src="https://github.com/user-attachments/assets/6755bf62-f292-426f-88e6-9771f8de55bf" />
+  <img width="1000" height="70" alt="image-2024-05-26-153929846" src="https://github.com/user-attachments/assets/6755bf62-f292-426f-88e6-9771f8de55bf" />
 
 <p align="center">
 credit @lavendergalactic & anyone else on Tumblr for blinkies.  
