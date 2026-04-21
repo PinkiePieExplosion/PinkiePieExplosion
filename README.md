@@ -16,6 +16,10 @@
 <img src="https://readme-typing-svg.demolab.com?font=Comic+Sans+MS&size=15&duration=2000&pause=300&color=db538e&background=f6b2be600&width=230&lines=Welcome+to+Pinkie+Pie's+GitHub!" />
 </div>
 
+<div align="center">
+<img src="https://readme-typing-svg.demolab.com?font=Comic+Sans+MS&size=15&duration=2000&pause=300&color=db538e&background=f6b2be600&width=230&lines=I+hope+I+can+do+business+w/+you!" />
+</div>
+
  <p align="center"> 
   <img width="1000" height="70" alt="image-2024-05-26-153929846" src="https://github.com/user-attachments/assets/6755bf62-f292-426f-88e6-9771f8de55bf" />
 
