@@ -85,7 +85,7 @@ ___________________________________________________________
 GitHub user: none. (not associated with - document got made on him, DO NOT WITCHHUNT HIM IF U KNOW HIM.)
 
 <p align="center"> 
-<img width="334" height="725" alt="image" src="https://github.com/user-attachments/assets/347e427f-634b-407b-82d4-a1d3c3e835ef" /> <img width="334" height="725" alt="image" src="https://github.com/user-attachments/assets/18b05dae-9f3f-423f-982c-c6ae5689da68" /> <img width="334" height="725" alt="image" src="https://github.com/user-attachments/assets/3fde1f90-c20d-4eff-a4ad-f8145d818355" /> <img width="334" height="725" alt="image" src="https://github.com/user-attachments/assets/d2ba37f9-5039-4817-b903-bce71d30c45e" />
+<img width="334" height="725" alt="image" src="https://github.com/user-attachments/assets/aa5e6e6a-bec9-430a-afd8-b2a7d9d0454e" /> <img width="334" height="725" alt="image" src="https://github.com/user-attachments/assets/427d6810-7149-4743-81dd-aac922dffd03" /> <img width="334" height="725" alt="image" src="https://github.com/user-attachments/assets/cf7618b9-ada7-46cf-a5e5-2f56a343bfc3" />
 
 ___________________________________________________________
 
