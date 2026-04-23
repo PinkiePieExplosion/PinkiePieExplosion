@@ -92,7 +92,7 @@ GitHub user: none. (not associated with - document got made on him, DO NOT WITCH
 
 <p align="center"> 
 <img width="334" height="725" alt="image" src="https://github.com/user-attachments/assets/aa5e6e6a-bec9-430a-afd8-b2a7d9d0454e" /> 
-<img width="334" height="725" alt="1" src="https://github.com/user-attachments/assets/2c8fff43-b34a-4e27-a752-6c59c23db087" />
+<img width="334" height="725" alt="unnamed" src="https://github.com/user-attachments/assets/0d0051df-8ec0-4214-bf22-43a5f8f2287a" />
 <img width="334" height="725" alt="image" src="https://github.com/user-attachments/assets/cf7618b9-ada7-46cf-a5e5-2f56a343bfc3" />
 
 ___________________________________________________________
