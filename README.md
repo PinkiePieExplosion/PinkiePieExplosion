@@ -60,7 +60,7 @@ I am very active on Ponytown and Discord!
 
 As you can probably tell I LOVE Pinkie Pie!! 
 
-Im interested in criminals, psychology & anything doing with crimes because of my grandpa (RIP papa.) He did a lot of stuff involving all of that, he was a grade 1 detective in the New York police dept. then served in the army for 3 years before he became a police officer.
+Im interested in criminals, psychology, murderers/murders & anything dealing with crimes because of my grandpa (RIP papa.) He did a lot of stuff involving all of that, he was a grade 1 detective in the New York police dept. then served in the army for 3 years before he became a police officer.
 
  <p align="center"> 
   <img width="1000" height="70" alt="image-2024-05-26-153929846" src="https://github.com/user-attachments/assets/6755bf62-f292-426f-88e6-9771f8de55bf" />
