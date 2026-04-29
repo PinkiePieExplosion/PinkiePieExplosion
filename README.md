@@ -45,9 +45,10 @@ I am 14 to 15+!
 
 I am Panromantic, Almondsexual, Nonbinary (strictly they/them only)
 
-I am also a Kemonomimi dog!! <img width="20" height="10" alt="IMG-1839" src="https://github.com/user-attachments/assets/f2c5d271-0580-4c86-bedc-1f58e2449854" /> 
+I am also a Kemonomimi! 
+
  
-My Kemonomimi type is German Shepard, Golden Retriever & Orange cat (maybe more? idrk)
+My Kemonomimi types are German Shepard, Golden Retriever & Orange cat (maybe more? Give me ideas!)
 
    <p align="left"> 
   <img width="500" height="33" alt="image-2024-05-26-153929846" src="https://github.com/user-attachments/assets/6755bf62-f292-426f-88e6-9771f8de55bf" /> 
@@ -77,16 +78,20 @@ _____________________________
  <p align="center"> 
 I can make Github repositories!: Examples below!! (Whisper me on pt for discord info to get one! I do them for free for now or for a ponytown skin/art!)
 
-<p align="center">
-GitHub User: TheUnthinkableMiracle
+<div align="center">
+  
+GitHub User: [@TheUnthinkableMiracle](https://github.com/TheUnthinkableMiracle) - Not really associated with her. Grew apart but idk if she will get back in contact w/ me.
+</div>
 
  <p align="center"> 
 <img width="385" height="855" alt="image" src="https://github.com/user-attachments/assets/4a168c1f-926b-4934-935e-0c6e51f393b1" /> <img width="385" height="855" alt="image" src="https://github.com/user-attachments/assets/af05f7b2-e434-488a-b2fc-bb7a2ebdcc00" />
 
 ___________________________________________________________
 
-<p align="center"> 
-GitHub User: @Hxrlequinn
+<div align="center"> 
+  
+GitHub User: [@Hxrlequinn](https://github.com/Hxrlequinn) - Not really associated with him. Grew apart but idk if he will get back in contact w/ me.
+</div>
 
  <p align="center"> 
 <img width="334" height="725" alt="image" src="https://github.com/user-attachments/assets/172797f9-95ff-46c3-9cd2-981c73295f54" /> <img width="334" height="725" alt="image" src="https://github.com/user-attachments/assets/a2690267-fce8-4a43-aa30-1723fb38f298" /> <img width="334" height="725" alt="image" src="https://github.com/user-attachments/assets/451c4583-255d-430f-8dd3-a090a43b1056" /> <img width="334" height="725" alt="image" src="https://github.com/user-attachments/assets/93547fc1-7304-4995-974c-6cc37b720317" />
@@ -94,7 +99,7 @@ GitHub User: @Hxrlequinn
 ___________________________________________________________
 
 <p align="center"> 
-GitHub user: none. (not associated with - document got made on him, DO NOT WITCHHUNT HIM IF U KNOW HIM.)
+GitHub user: none. - (not associated with - document got made on him, DO NOT WITCHHUNT HIM IF U KNOW HIM.)
 
 <p align="center"> 
 <img width="334" height="725" alt="image" src="https://github.com/user-attachments/assets/aa5e6e6a-bec9-430a-afd8-b2a7d9d0454e" /> 
@@ -103,8 +108,10 @@ GitHub user: none. (not associated with - document got made on him, DO NOT WITCH
 
 ___________________________________________________________
 
-<p align="center"> 
-GitHub user: @MothlightSys
+<div align="center"> 
+  
+GitHub user: [@MothlightSys](https://github.com/MothlightSys) - COOL GUY!!! ER RULES CHAT!!
+</div> 
 
 <p align="center"> 
 <img width="610" height="557" alt="image" src="https://github.com/user-attachments/assets/aa906769-c232-49dc-9966-441c8fde81af" /> <img width="585" height="536" alt="image" src="https://github.com/user-attachments/assets/7283b5a3-603b-42cf-b028-0bf63cfeb81b" /> <img width="666" height="891" alt="image" src="https://github.com/user-attachments/assets/d9c89709-0b39-4ce6-9b6a-a929a4efbad8" />
@@ -112,15 +119,17 @@ GitHub user: @MothlightSys
 ___________________________________________________________
 
 <p align="center"> 
-GitHub user: @jaydenn
+GitHub user: @jaydenn - No link bc he changed his GitHub READ.ME
 
 <p align="center">
 <img width="381" height="649" alt="unnamed" src="https://github.com/user-attachments/assets/6e4c9310-28e2-44e2-a58a-3961c5ae2279" /> <img width="355" height="649" alt="unnamed" src="https://github.com/user-attachments/assets/87d83122-c5df-426a-89e2-6c3f580f91c4" /> <img width="363" height="649" alt="unnamed" src="https://github.com/user-attachments/assets/64fc4799-d53e-42a8-9819-1a869a06c926" /> <img width="360" height="648" alt="unnamed" src="https://github.com/user-attachments/assets/0f04f875-dc01-43b8-a057-a99367e08b81" /> <img width="403" height="649" alt="unnamed" src="https://github.com/user-attachments/assets/0081a89d-95fe-49d1-b2a1-5f3fbe809f60" />
 
 ___________________________________________________________
 
-<p align="center"> 
-GitHub user: @GlamRockers-CO
+<div align="center"> 
+  
+GitHub user: [@GlamRockers-CO](https://github.com/NarratorFights) - COOL DUDE #2!!! ER RULES CHAT!!
+</div>
 
 <p align="center"> 
 <img width="922" height="725" alt="image" src="https://github.com/user-attachments/assets/91bd16b1-d95e-4a01-9f57-44db4ef4bab4" /> ><img width="891" height="725" alt="image" src="https://github.com/user-attachments/assets/14519aac-a0a6-4082-bed9-7bd56edd4d6d" />
