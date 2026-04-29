@@ -63,15 +63,15 @@ As you can probably tell I LOVE Pinkie Pie!!
 
 Im interested in criminals, psychology, murderers/murders & anything dealing with crimes because of my grandpa (RIP papa.) He did a lot of stuff involving all of that, he was a Grade 1 Detective (top grade you can be) in the New York police dept. then served in the Army for 3 years before he became a Police Officer.
 
- <p align="center"> 
-  <img width="1000" height="70" alt="image-2024-05-26-153929846" src="https://github.com/user-attachments/assets/6755bf62-f292-426f-88e6-9771f8de55bf" />
-
 <p align="center">
-credit @lavendergalactic & anyone else on Tumblr for blinkies.  
+credit @lavendergalactic & anyone else on Tumblr for blinkies.
+
+ <p align="center"> 
+  <img width="1000" height="70" alt="image-2024-05-26-153929846" src="https://github.com/user-attachments/assets/6755bf62-f292-426f-88e6-9771f8de55bf" />  
 
 <img width="1000" height="100" alt="image-2024-05-24-133746247" src="https://github.com/user-attachments/assets/7eb11f41-2146-496a-a884-c7e188211837" />
 
-_____________________________
+______________
 
 <img width="1000" height="100" alt="image-2024-05-24-133734906" src="https://github.com/user-attachments/assets/528a2a76-06a4-4030-93e4-b17d25a1326b" />
 
