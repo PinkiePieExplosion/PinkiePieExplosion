@@ -41,7 +41,7 @@ Hi my name is Pinkie Pie!
 
 I am 14 to 15+!
 
-I am Panromantic, Almondsexual, Nonbinary (strictly they/them only)
+I am Panromantic, Almondsexual (but im starting to lean towards pansexual or omni), Nonbinary (strictly they/them only)
 
 I am also a Kemonomimi! 
 
