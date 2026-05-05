@@ -47,8 +47,9 @@ I am also a Kemonomimi!
 
 My Kemonomimi types are German Shepard, Golden Retriever & Orange cat (maybe more? Give me ideas!)
 
-I am usaully at docks in my sona skin or my Fez skin - this gif is my sona 
+I am usaully at docks in my sona skin or my Fez skin - this gif is my sona Sweet Heat (credit to Doe for the GIF)
 
+<p align="center"> 
 <img width="200" height="200" alt="A07AA01D-A535-4C9E-9F95-45EC84C2A59E" src="https://github.com/user-attachments/assets/9e392d7e-517f-4d23-a438-e293a0a23c19" />
 
    <p align="left"> 
