@@ -43,7 +43,10 @@ I am 14 to 15+!
 
 I am Panromantic, Almondsexual (but im starting to lean towards pansexual or omni), Nonbinary (strictly they/them only)
 
-I think this would count as a BYI: I have Social Anxiety (MOSTLY with people my age - a tiny bit with people younger than me irl and none really with adults/people older) It affects me in general online but the age is what affects me irl. I am safe online and the adult friends I do have online and irl I have either known them for years or they were my parents friends (or my parents know them well - mostly applies for irl.) I can make friends with people younger than me or my age online but it isn't as easy for me. I have a couple friends around my age (Teratophilia & winterprisonn) but I also have friends older than me who have either just gained my trust or I look up to them! (MothlightSys, brvteforce (online mom I think - if she allows it ofc), & NarratorFights) 
+I think this would count as a BYI: I have Social Anxiety (MOSTLY with people my age - a tiny bit with people younger than me irl and none really with adults/people older) It affects me in general online but the age is what affects me irl. I am safe online and the adult friends I do have online and irl I have either known them for years or they were my parents friends (or my parents know them well - mostly applies for irl.) I can make friends with people younger than me or my age online but it isn't as easy for me. 
+
+- I have a couple friends around my age (Teratophilia & winterprisonn) 
+- But I also have friends older than me who have either just gained my trust or I look up to them! (MothlightSys, brvteforce (online mom I think - if she allows it ofc), & NarratorFights) 
 
 Another BYI: I also have ADHD! I got diagnosed when I was a toddler and I can get very hyperactive, I also end up assuming stuff a lot - like if I get ignored I think I did something wrong or if I get scolded I end up feeling horrible. I am getting better at not feeling that way though!
 
