@@ -134,7 +134,7 @@ ___________________________________________________________
 
 <div align="center"> 
   
-GitHub user: [@GlamRockers-CO](https://github.com/NarratorFights) - COOL DUDE #2!!! ER RULES CHAT!!
+GitHub user: [@NarratorFights](https://github.com/NarratorFights) - COOL DUDE #2!!! ER RULES CHAT!!
 </div>
 
 <p align="center"> 
