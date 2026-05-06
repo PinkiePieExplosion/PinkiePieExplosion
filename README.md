@@ -54,7 +54,7 @@ I am also a Kemonomimi!
 
 My Kemonomimi types are German Shepard, Golden Retriever & Orange cat (maybe more? Give me ideas!)
 
-I am usaully at docks in my sona (not irl) Sweet Heat or my Fez skin
+I am usaully at docks in my sona Sweet Heat (not my irl sona - i specify this because Sweet Heat is a black oc i made, while I am white) or my Fez skin
 
    <p align="left"> 
   <img width="500" height="33" alt="image-2024-05-26-153929846" src="https://github.com/user-attachments/assets/6755bf62-f292-426f-88e6-9771f8de55bf" /> 
