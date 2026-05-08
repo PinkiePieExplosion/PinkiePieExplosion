@@ -43,14 +43,20 @@ Hi my name is Pinkie Pie!
 
 I am 14 to 15+!
 
-I am Panromantic, Almondsexual (but im starting to lean towards pansexual or omni), Nonbinary (strictly they/them only)
+I am Panromantic, Almondsexual (but im starting to lean to Omnisexual), Nonbinary (strictly they/them only)
 
-I think this would count as a BYI: I have Social Anxiety (MOSTLY with people my age - a tiny bit with people younger than me irl and none really with adults/people older) It affects me in general online but the age is what affects me irl. I am safe online and the adult friends I do have online and irl I have either known them for years or they were my parents friends (or my parents know them well - mostly applies for irl.) I can make friends with people younger than me or my age online but it isn't as easy for me. 
+<p align="center">
+BYI
+
+I have Social Anxiety (MOSTLY with people my age - a tiny bit with people younger than me irl and none really with adults/people older) It affects me a lot irl but not as much online, still a lot though, it still affects me though. I AM safe online - I don't get EXTREMELY close to the adult friends I have unless they have earned my trust and the adult friends I do have online and irl I have either known them well enough to be comfortable around them or they were my parents friends (or my parents know them well - mostly applies for irl.) I can make friends with people younger than me or my age online but it isn't as easy for me. 
 
 - I have a couple friends around my age ([Teratophilia](https://github.com/Teratophilia) & [winterprisonn](https://github.com/winterprisonn)) 
 - But I also have friends older than me who have either just gained my trust or I look up to them! ([MothlightSys](https://github.com/MothlightSys), [brvteforce](https://github.com/brvteforce) (online mom!), & [NarratorFights](https://github.com/NarratorFights)) 
 
-Another BYI: I also have ADHD! I got diagnosed when I was a toddler and I can get very hyperactive, I also end up assuming stuff a lot - like if I get ignored I think I did something wrong or if I get scolded I end up feeling horrible. I am getting better at not feeling that way though!
+I also have ADHD! I got diagnosed when I was a toddler and I can get very hyperactive, I also end up assuming stuff a lot - like if I get ignored I think I did something wrong or if I get scolded I end up feeling horrible. I am getting better at not feeling that way though
+
+<p align="center">
+End of BYI
 
 I am also a Kemonomimi! 
 
