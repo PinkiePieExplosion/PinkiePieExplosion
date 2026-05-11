@@ -35,11 +35,9 @@
 
 <img width="88" height="31" alt="coded-by-a-human" src="https://github.com/user-attachments/assets/79e3e164-3a74-4232-93ae-caafb3382dc0" /> <img width="88" height="31" alt="100-percent-created-without-ai" src="https://github.com/user-attachments/assets/09a7816d-6460-476e-9923-c85294b50355" /> ![68747470733a2f2f61647269616e73626c696e6b6965636f6c6c656374696f6e2e6e656f6369746965732e6f72672f627574746f6e732f613130312e6a7067](https://github.com/user-attachments/assets/c893e017-68e6-4fe3-8e34-717bff8cb1e6) <img width="88" height="31" alt="68747470733a2f2f706c617374696364696e6f2e6e656f6369746965732e6f72672f627574746f6e732f706172656e74616c61647669736f7279322e706e67" src="https://github.com/user-attachments/assets/4ef3258a-b77a-4a2e-a7a2-60d488c17076" /> 
 
-<img width="150" height="20" alt="c15" src="https://github.com/user-attachments/assets/6a25ece7-1667-464f-b579-70dca42df35a" />
-
 <img width="150" height="20" alt="onthefloor" src="https://github.com/user-attachments/assets/75b5d534-ef91-4457-a983-011bcaa5629d" /> <img width="150" height="20" alt="68747470733a2f2f706c617374696364696e6f2e6e65742f626c696e6b69652f776f726d626c696e6b2e676966" src="https://github.com/user-attachments/assets/da910461-5db8-4bba-b5b2-7e50d4bebea8" /> <img width="150" height="20" alt="68747470733a2f2f66696c652e67617264656e2f614c63556d4e5a427654475979584a6c2f69706f70627562626c6577726170626c696e6b69652e676966" src="https://github.com/user-attachments/assets/cf2d716a-c884-41e1-ac9f-6b36e2ccf29f" />
 
-![555674442-70a29c25-512c-42e0-a3f1-0e14302646ff](https://github.com/user-attachments/assets/31da74dc-3e36-4a22-ba90-1888c8a5d556) 
+<img width="150" height="20" alt="c15" src="https://github.com/user-attachments/assets/6a25ece7-1667-464f-b579-70dca42df35a" /> ![555674442-70a29c25-512c-42e0-a3f1-0e14302646ff](https://github.com/user-attachments/assets/31da74dc-3e36-4a22-ba90-1888c8a5d556) 
 
 Hi my name is Pinkie Pie!
 
