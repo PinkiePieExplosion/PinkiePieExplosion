@@ -1,4 +1,4 @@
-<img width="1000" height="100" alt="image-2024-05-24-133734906" src="https://github.com/user-attachments/assets/528a2a76-06a4-4030-93e4-b17d25a1326b" />
+<img width="1000" alt="image-2024-05-24-133734906" src="https://github.com/user-attachments/assets/528a2a76-06a4-4030-93e4-b17d25a1326b" />
 
 
 <p align="center">
@@ -9,7 +9,7 @@
 
 <div align="center">
   
-<img width="20" height="20" alt="tumblr_7e513875de966f3ea7baf699ff5a200a_b71e5187_75" src="https://github.com/user-attachments/assets/7fd1c72e-325f-45ec-8015-fcb8d29faa0f" /> ![](https://komarev.com/ghpvc/?username=PinkiePieExplosion-CO&label=Puppies!&color=ff70ae) 🦴 <img alt="GitHub followers" src="https://img.shields.io/github/followers/PinkiePieExplosion?style=flat&label=Friends&color=ff70ae">
+<img width="20" alt="tumblr_7e513875de966f3ea7baf699ff5a200a_b71e5187_75" src="https://github.com/user-attachments/assets/7fd1c72e-325f-45ec-8015-fcb8d29faa0f" /> ![](https://komarev.com/ghpvc/?username=PinkiePieExplosion-CO&label=Puppies!&color=ff70ae) 🦴 <img alt="GitHub followers" src="https://img.shields.io/github/followers/PinkiePieExplosion?style=flat&label=Friends&color=ff70ae">
 </div>
 
 <div align="center">
@@ -17,7 +17,7 @@
 </div>
 
  <p align="center"> 
-  <img width="1000" height="70" alt="image-2024-05-26-153929846" src="https://github.com/user-attachments/assets/6755bf62-f292-426f-88e6-9771f8de55bf" />
+  <img width="1000" alt="image-2024-05-26-153929846" src="https://github.com/user-attachments/assets/6755bf62-f292-426f-88e6-9771f8de55bf" />
 
 <img width="150" height="20" alt="dg42cal-09d34728-a180-4104-92dc-1a17d9ca680e" src="https://github.com/user-attachments/assets/7655d644-5e38-4240-adb6-09c09efafcaf" /> <img width="150" height="20" alt="0264-adhd" src="https://github.com/user-attachments/assets/3859eecb-7db8-459e-9a12-8f7f661abf68" /> ![68747470733a2f2f66696c652e67617264656e2f614c63556d4e5a427654475979584a6c2f61646864737761672e676966](https://github.com/user-attachments/assets/7b677979-a5d8-4297-accf-bc2e1a71c0cd) ![68747470733a2f2f66696c652e67617264656e2f614c63556d4e5a427654475979584a6c2f616e786965747968617665722e676966](https://github.com/user-attachments/assets/e8a6b4ce-198a-4719-af23-4db17f3ecdc8) <img width="150" height="20" alt="blinkiesCafe-mM" src="https://github.com/user-attachments/assets/692abfda-daa1-48be-9bab-3e485cc75cfe" /> <img width="150" height="20" alt="0110-yeah" src="https://github.com/user-attachments/assets/c16d53f0-2d45-4bb4-97c1-d7a658bda1f1" /> ![blinkiesCafe-sA](https://github.com/user-attachments/assets/21af64a5-1483-459e-af0f-3187f1827078) ![blinkiesCafe-n8](https://github.com/user-attachments/assets/ecbec249-5125-416f-a139-dbf803ab4d5b) <img width="150" height="20" alt="blinkiesCafe-VM" src="https://github.com/user-attachments/assets/420df024-a7e9-4f76-8407-ab5f93421969" />
 
@@ -37,7 +37,7 @@
 
 <img width="150" height="20" alt="onthefloor" src="https://github.com/user-attachments/assets/75b5d534-ef91-4457-a983-011bcaa5629d" /> <img width="150" height="20" alt="68747470733a2f2f706c617374696364696e6f2e6e65742f626c696e6b69652f776f726d626c696e6b2e676966" src="https://github.com/user-attachments/assets/da910461-5db8-4bba-b5b2-7e50d4bebea8" /> <img width="150" height="20" alt="68747470733a2f2f66696c652e67617264656e2f614c63556d4e5a427654475979584a6c2f69706f70627562626c6577726170626c696e6b69652e676966" src="https://github.com/user-attachments/assets/cf2d716a-c884-41e1-ac9f-6b36e2ccf29f" />
 
-<img width="150" height="20" alt="c15" src="https://github.com/user-attachments/assets/6a25ece7-1667-464f-b579-70dca42df35a" /> ![555674442-70a29c25-512c-42e0-a3f1-0e14302646ff](https://github.com/user-attachments/assets/31da74dc-3e36-4a22-ba90-1888c8a5d556) 
+<img width="150" alt="c15" src="https://github.com/user-attachments/assets/6a25ece7-1667-464f-b579-70dca42df35a" /> ![555674442-70a29c25-512c-42e0-a3f1-0e14302646ff](https://github.com/user-attachments/assets/31da74dc-3e36-4a22-ba90-1888c8a5d556) 
 
 Hi my name is Pinkie Pie!
 
@@ -69,7 +69,7 @@ My Kemonomimi types are German Shepard, Golden Retriever & Orange cat (maybe mor
 I am usaully at docks in my sona Sweet Heat (not my irl sona - i specify this because Sweet Heat is a black oc i made, while I am white) or my Fez skin
 
    <p align="left"> 
-  <img width="500" height="33" alt="image-2024-05-26-153929846" src="https://github.com/user-attachments/assets/6755bf62-f292-426f-88e6-9771f8de55bf" /> 
+  <img width="500" alt="image-2024-05-26-153929846" src="https://github.com/user-attachments/assets/6755bf62-f292-426f-88e6-9771f8de55bf" /> 
 
 Timezone: (UTC -05:00)
 
@@ -85,13 +85,13 @@ Im interested in criminals, psychology, murderers/murders & anything dealing wit
 credit @lavendergalactic & anyone else on Tumblr for blinkies.
 
  <p align="center"> 
-  <img width="1000" height="70" alt="image-2024-05-26-153929846" src="https://github.com/user-attachments/assets/6755bf62-f292-426f-88e6-9771f8de55bf" />  
+  <img width="1000" alt="image-2024-05-26-153929846" src="https://github.com/user-attachments/assets/6755bf62-f292-426f-88e6-9771f8de55bf" />  
 
-<img width="1000" height="100" alt="image-2024-05-24-133746247" src="https://github.com/user-attachments/assets/7eb11f41-2146-496a-a884-c7e188211837" />
+<img width="1000" alt="image-2024-05-24-133746247" src="https://github.com/user-attachments/assets/7eb11f41-2146-496a-a884-c7e188211837" />
 
 ______________
 
-<img width="1000" height="100" alt="image-2024-05-24-133734906" src="https://github.com/user-attachments/assets/528a2a76-06a4-4030-93e4-b17d25a1326b" />
+<img width="1000" alt="image-2024-05-24-133734906" src="https://github.com/user-attachments/assets/528a2a76-06a4-4030-93e4-b17d25a1326b" />
 
  <p align="center"> 
 I can make Github repositories!: Examples below!! (Whisper me on pt for discord info to get one! I do them for free for now or for a ponytown skin/art!)
@@ -152,8 +152,7 @@ GitHub user: [@NarratorFights](https://github.com/NarratorFights) - COOL DUDE #2
 <p align="center"> 
 <img width="922" height="725" alt="image" src="https://github.com/user-attachments/assets/91bd16b1-d95e-4a01-9f57-44db4ef4bab4" /> ><img width="891" height="725" alt="image" src="https://github.com/user-attachments/assets/14519aac-a0a6-4082-bed9-7bd56edd4d6d" />
 
-
 ___________________________________________________________
 
-<img width="1000" height="100" alt="image-2024-05-24-133746247" src="https://github.com/user-attachments/assets/7eb11f41-2146-496a-a884-c7e188211837" /> 
+<img width="1000" alt="image-2024-05-24-133746247" src="https://github.com/user-attachments/assets/7eb11f41-2146-496a-a884-c7e188211837" /> 
 
