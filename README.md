@@ -9,7 +9,7 @@
 
 <div align="center">
   
-<img width="20" alt="tumblr_7e513875de966f3ea7baf699ff5a200a_b71e5187_75" src="https://github.com/user-attachments/assets/7fd1c72e-325f-45ec-8015-fcb8d29faa0f" /> ![](https://komarev.com/ghpvc/?username=PinkiePieExplosion-CO&label=Puppies!&color=ff70ae) 🦴 <img alt="GitHub followers" src="https://img.shields.io/github/followers/PinkiePieExplosion?style=flat&label=Friends&color=ff70ae">
+![](https://komarev.com/ghpvc/?username=PinkiePieExplosion-CO&label=Puppies!&color=ff70ae) <img width="20" alt="tumblr_7e513875de966f3ea7baf699ff5a200a_b71e5187_75" src="https://github.com/user-attachments/assets/7fd1c72e-325f-45ec-8015-fcb8d29faa0f" /> <img alt="GitHub followers" src="https://img.shields.io/github/followers/PinkiePieExplosion?style=flat&label=Friends&color=ff70ae">
 </div>
 
 <div align="center">
