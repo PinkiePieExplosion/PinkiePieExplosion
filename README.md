@@ -45,7 +45,7 @@ I am 14 to 15+!
 
 I am Panromantic, Almondsexual (but im starting to lean to Omnisexual), Nonbinary (strictly they/them only)
 
-I love Tomadachi Life: Living the Dream, RDR2, Rick & Morty, Smiling Friends, PokeMon, TWD, MHA, & probs more! I specifically like Negan and Lizzie from TWD! I like all the main characters except Boss & I have no favorite among them! (Pim, Charlie, Glep & Alan.)
+I love Tomadachi Life: Living the Dream, RDR2, Rick & Morty, Smiling Friends, PokeMon, TWD, MHA, & probs more! I specifically like Negan and Lizzie from TWD! I like all the main characters except Boss- he is a little too creepy for me (Pim, Charlie, Glep & Alan!)
 
 My hyperfixation atm is TWD - specifically Negan, Rick & Daryl! I hv not watched a ton & hv mostly seen them through tiktok edits!
 
