@@ -49,7 +49,7 @@ I am Panromantic, Almondsexual (but im starting to lean to Omnisexual), Nonbinar
 
 I love Tomadachi Life: Living the Dream, RDR2, Rick & Morty, Smiling Friends, PokeMon, TWD, MHA, & probs more! I specifically like Negan and Lizzie from TWD! I like all the main characters except Boss- he is a little too creepy for me (Pim, Charlie, Glep & Alan!)
 
-My hyperfixation atm is TWD - specifically Negan (my favorite character in TWD atm,) Rick, Daryl and Lizzie! I hv not watched a ton & hv mostly seen them through tiktok edits!
+My hyperfixation atm is TWD - specifically Negan (my favorite character in TWD atm & sadly could not find any blinkies for him...,) Rick, Daryl and Lizzie! I hv not watched a ton & hv mostly seen them through tiktok edits!
 
 <p align="center">
 BYI
