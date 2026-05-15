@@ -110,7 +110,7 @@ ___________________________________________________________
 
 <div align="center"> 
   
-GitHub User: [@Hxrlequinn](https://github.com/Hxrlequinn) - Not really associated with him. Grew apart but idk if he will get back in contact w/ me.
+GitHub User: [@Hxrlequinn](https://github.com/Hxrlequinn) - Not really associated with them. Got back in contact sorta(?) Making GitHub for their alt.
 </div>
 
  <p align="center"> 
@@ -119,7 +119,7 @@ GitHub User: [@Hxrlequinn](https://github.com/Hxrlequinn) - Not really associate
 ___________________________________________________________
 
 <p align="center"> 
-GitHub user: none. - (not associated with - document got made on him, DO NOT WITCHHUNT HIM IF U KNOW HIM.)
+GitHub user: none. - (not associated with - document got made on him, DO NOT WITCHHUNT.)
 
 <p align="center"> 
 <img width="334" height="725" alt="image" src="https://github.com/user-attachments/assets/aa5e6e6a-bec9-430a-afd8-b2a7d9d0454e" /> 
@@ -148,7 +148,7 @@ ___________________________________________________________
 
 <div align="center"> 
   
-GitHub user: [@NarratorFights](https://github.com/NarratorFights) - COOL DUDE #2!!! ER RULES CHAT!!
+GitHub user: [@NarratorFights](https://github.com/NarratorFights) - COOL DUDE #2!!!
 </div>
 
 <p align="center"> 
