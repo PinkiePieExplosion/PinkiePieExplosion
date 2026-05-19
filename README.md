@@ -44,7 +44,7 @@
 
 Hi my name is Pinkie Pie!
 
-I am 14 to 15+!
+I am 14 to 15+! (B-day June 27 - the age thingie will change soon)
 
 I am Panromantic, Almondsexual (but im starting to lean to Omnisexual), Nonbinary (strictly they/them only)
 
