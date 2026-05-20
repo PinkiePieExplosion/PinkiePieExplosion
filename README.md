@@ -62,6 +62,10 @@ I have Social Anxiety (MOSTLY with people my age - a tiny bit with people younge
 
 I also have ADHD! I got diagnosed when I was a toddler and I can get very hyperactive, I also end up assuming stuff a lot - like if I get ignored I think I did something wrong or if I get scolded I end up feeling horrible. I am getting better at not feeling that way though
 
+I am anti-harrassemnt due to not liking people getting harrassed for what they did because then they are just getting more attention. If you harrass someone either publically or in private, then you are giving them the attention they want. If you give someone attention after they do something bad, they will think that maybe they can do more bad stuff & get more attention. (at least from my experience/POV) 
+
+Basic DNI except - Idm proshippers but I would rather them not talk about their proship or show their proship off in front of me. Idm if adults interact or not - as long as they are not weird then we are chill! 
+
 <p align="center">
 End of BYI
 
