@@ -55,7 +55,7 @@ My hyperfixation atm is TWD - specifically Negan (my favorite character in TWD a
 <p align="center">
 BYI
 
-I have Social Anxiety (MOSTLY with people my age - a tiny bit with people younger than me irl and none really with adults/people older) It affects me a lot when it comes to irl but a tiny bit less online. I AM safe online PLEASE DON'T WORRY - I don't get EXTREMELY close to the adult friends I have unless they have earned my trust and the adult friends I do have online and irl I have either known them well enough to be comfortable around them or (they were my parents friends/my parents know them well - mostly applies for irl.) I can make friends with people younger than me or my age online but it isn't as easy for me. 
+I have Social Anxiety (MOSTLY with people my age - a tiny bit with people younger than me irl and none really with adults/people older) It affects me a lot when it comes to irl but a tiny bit less online. I AM safe online PLEASE DON'T WORRY - I don't get EXTREMELY close to the adult friends I have unless they have earned my trust and the adult friends I do have online and irl I have either known them well enough to be comfortable around them or (they are my parents friends/my parents know them well - mostly applies for irl.) I can make friends with people younger than me or my age online but it isn't as easy for me. 
 
 - I have a couple friends around my age ([Teratophilia](https://github.com/Teratophilia) & [winterprisonn](https://github.com/winterprisonn)) 
 - But I also have friends older than me who have either just gained my trust or I look up to them! ([MothlightSys](https://github.com/MothlightSys), [brvteforce](https://github.com/brvteforce) (online mom!), & [NarratorFights](https://github.com/NarratorFights)) 
