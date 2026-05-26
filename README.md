@@ -1,5 +1,6 @@
 <img width="1000" alt="image-2024-05-24-133734906" src="https://github.com/user-attachments/assets/528a2a76-06a4-4030-93e4-b17d25a1326b" />
 
+<img width="1000" alt="68747470733a2f2f692e6962622e636f2f4d444e35794e57502f74756d626c722d38383535623037363965643563383734373566373165313234613161616239642d66306636663434332d3430302e77656270" src="https://github.com/user-attachments/assets/1e4735b3-aaea-4948-ac5c-b98240ae7ba7" />
 
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=312argo3gyfsw7mhwzdd6tmswldm&redirect=true">
@@ -91,14 +92,15 @@ Im interested in criminals, psychology, murderers/murders & anything dealing wit
 <p align="center">
 credit @lavendergalactic & anyone else on Tumblr for blinkies.
 
- <p align="center"> 
-  <img width="1000" alt="image-2024-05-26-153929846" src="https://github.com/user-attachments/assets/6755bf62-f292-426f-88e6-9771f8de55bf" />  
+<img width="1000" alt="68747470733a2f2f692e6962622e636f2f4d444e35794e57502f74756d626c722d38383535623037363965643563383734373566373165313234613161616239642d66306636663434332d3430302e77656270" src="https://github.com/user-attachments/assets/1e4735b3-aaea-4948-ac5c-b98240ae7ba7" />
 
 <img width="1000" alt="image-2024-05-24-133746247" src="https://github.com/user-attachments/assets/7eb11f41-2146-496a-a884-c7e188211837" />
 
 ______________
 
 <img width="1000" alt="image-2024-05-24-133734906" src="https://github.com/user-attachments/assets/528a2a76-06a4-4030-93e4-b17d25a1326b" />
+
+<img width="1000" alt="68747470733a2f2f692e6962622e636f2f4d444e35794e57502f74756d626c722d38383535623037363965643563383734373566373165313234613161616239642d66306636663434332d3430302e77656270" src="https://github.com/user-attachments/assets/1e4735b3-aaea-4948-ac5c-b98240ae7ba7" />
 
  <p align="center"> 
 I can make Github repositories!: Examples below!! (Whisper me on pt for discord info to get one! I do them for free for now or for a ponytown skin/art!)
@@ -111,7 +113,8 @@ GitHub User: [@TheUnthinkableMiracle](https://github.com/TheUnthinkableMiracle) 
  <p align="center"> 
 <img width="385" height="855" alt="image" src="https://github.com/user-attachments/assets/4a168c1f-926b-4934-935e-0c6e51f393b1" /> <img width="385" height="855" alt="image" src="https://github.com/user-attachments/assets/af05f7b2-e434-488a-b2fc-bb7a2ebdcc00" />
 
-___________________________________________________________
+ <p align="center"> 
+  <img width="1000" alt="image-2024-05-26-153929846" src="https://github.com/user-attachments/assets/6755bf62-f292-426f-88e6-9771f8de55bf" />
 
 <div align="center"> 
   
@@ -121,7 +124,8 @@ GitHub User: [@Hxrlequinn](https://github.com/Hxrlequinn) - Not really associate
  <p align="center"> 
 <img width="334" height="725" alt="image" src="https://github.com/user-attachments/assets/172797f9-95ff-46c3-9cd2-981c73295f54" /> <img width="334" height="725" alt="image" src="https://github.com/user-attachments/assets/a2690267-fce8-4a43-aa30-1723fb38f298" /> <img width="334" height="725" alt="image" src="https://github.com/user-attachments/assets/451c4583-255d-430f-8dd3-a090a43b1056" /> <img width="334" height="725" alt="image" src="https://github.com/user-attachments/assets/93547fc1-7304-4995-974c-6cc37b720317" />
 
-___________________________________________________________
+ <p align="center"> 
+  <img width="1000" alt="image-2024-05-26-153929846" src="https://github.com/user-attachments/assets/6755bf62-f292-426f-88e6-9771f8de55bf" />
 
 <p align="center"> 
 GitHub user: none. - (not associated with - document got made on him, DO NOT WITCHHUNT.)
@@ -131,7 +135,8 @@ GitHub user: none. - (not associated with - document got made on him, DO NOT WIT
 <img width="334" height="725" alt="unnamed" src="https://github.com/user-attachments/assets/0d0051df-8ec0-4214-bf22-43a5f8f2287a" />
 <img width="334" height="725" alt="image" src="https://github.com/user-attachments/assets/cf7618b9-ada7-46cf-a5e5-2f56a343bfc3" />
 
-___________________________________________________________
+ <p align="center"> 
+  <img width="1000" alt="image-2024-05-26-153929846" src="https://github.com/user-attachments/assets/6755bf62-f292-426f-88e6-9771f8de55bf" />
 
 <div align="center"> 
   
@@ -141,7 +146,8 @@ GitHub user: [@MothlightSys](https://github.com/MothlightSys) - COOL GUY!!! ER R
 <p align="center"> 
 <img width="610" height="557" alt="image" src="https://github.com/user-attachments/assets/aa906769-c232-49dc-9966-441c8fde81af" /> <img width="585" height="536" alt="image" src="https://github.com/user-attachments/assets/7283b5a3-603b-42cf-b028-0bf63cfeb81b" /> <img width="666" height="891" alt="image" src="https://github.com/user-attachments/assets/d9c89709-0b39-4ce6-9b6a-a929a4efbad8" />
 
-___________________________________________________________
+ <p align="center"> 
+  <img width="1000" alt="image-2024-05-26-153929846" src="https://github.com/user-attachments/assets/6755bf62-f292-426f-88e6-9771f8de55bf" />
 
 <p align="center"> 
 GitHub user: @jaydenn - No link bc he changed his GitHub READ.ME
@@ -149,7 +155,8 @@ GitHub user: @jaydenn - No link bc he changed his GitHub READ.ME
 <p align="center">
 <img width="381" height="649" alt="unnamed" src="https://github.com/user-attachments/assets/6e4c9310-28e2-44e2-a58a-3961c5ae2279" /> <img width="355" height="649" alt="unnamed" src="https://github.com/user-attachments/assets/87d83122-c5df-426a-89e2-6c3f580f91c4" /> <img width="363" height="649" alt="unnamed" src="https://github.com/user-attachments/assets/64fc4799-d53e-42a8-9819-1a869a06c926" /> <img width="360" height="648" alt="unnamed" src="https://github.com/user-attachments/assets/0f04f875-dc01-43b8-a057-a99367e08b81" /> <img width="403" height="649" alt="unnamed" src="https://github.com/user-attachments/assets/0081a89d-95fe-49d1-b2a1-5f3fbe809f60" />
 
-___________________________________________________________
+ <p align="center"> 
+  <img width="1000" alt="image-2024-05-26-153929846" src="https://github.com/user-attachments/assets/6755bf62-f292-426f-88e6-9771f8de55bf" />
 
 <div align="center"> 
   
@@ -159,7 +166,6 @@ GitHub user: [@NarratorFights](https://github.com/NarratorFights) - COOL DUDE #2
 <p align="center"> 
 <img width="922" height="725" alt="image" src="https://github.com/user-attachments/assets/91bd16b1-d95e-4a01-9f57-44db4ef4bab4" /> ><img width="891" height="725" alt="image" src="https://github.com/user-attachments/assets/14519aac-a0a6-4082-bed9-7bd56edd4d6d" />
 
-___________________________________________________________
-
+<img width="1000" alt="68747470733a2f2f692e6962622e636f2f4d444e35794e57502f74756d626c722d38383535623037363965643563383734373566373165313234613161616239642d66306636663434332d3430302e77656270" src="https://github.com/user-attachments/assets/1e4735b3-aaea-4948-ac5c-b98240ae7ba7" />'
 <img width="1000" alt="image-2024-05-24-133746247" src="https://github.com/user-attachments/assets/7eb11f41-2146-496a-a884-c7e188211837" /> 
 
