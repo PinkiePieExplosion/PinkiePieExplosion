@@ -65,7 +65,7 @@ I also have ADHD! I got diagnosed when I was a toddler and I can get very hypera
 
 I am anti-harrassemnt due to not liking people getting harrassed for what they did because then they are just getting more attention. If you harrass someone either publically or in private, then you are giving them the attention they want. If you give someone attention after they do something bad, they will think that maybe they can do more bad stuff & get more attention. (at least from my experience/POV.) I do think that people should be exposed for doing bad things irl or online but not to an extreme, because then people could find their IP address or personal info on said person if they look deep enough.
 
-Basic DNI - Idm if adults interact or not - as long as they are not weird then we are chill!
+My basic DNI is rlly just proshippers, weird adults, & blacklistee's! 
 
 <p align="center">
 End of BYI
