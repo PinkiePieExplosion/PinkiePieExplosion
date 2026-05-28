@@ -59,13 +59,15 @@ BYI
 I have Social Anxiety (MOSTLY with people my age - a tiny bit with people younger than me irl and none really with adults/people older) It affects me a lot when it comes to irl but a tiny bit less online. I AM safe online PLEASE DON'T WORRY - I don't get EXTREMELY close to the adult friends I have unless they have earned my trust and the adult friends I do have online and irl I have either known them well enough to be comfortable around them or (they are my parents friends/my parents know them well - mostly applies for irl.) I can make friends with people younger than me or my age online but it isn't as easy for me. 
 
 - I have a couple friends around my age ([Teratophilia](https://github.com/Teratophilia) & [winterprisonn](https://github.com/winterprisonn)) 
-- But I also have friends older than me who have either just gained my trust or I look up to them! ([MothlightSys](https://github.com/MothlightSys), [brvteforce](https://github.com/brvteforce) (online mom!), & [NarratorFights](https://github.com/NarratorFights)) 
+- But I also have friends older than me who have either just gained my trust or I look up to them! ([MothlightSys](https://github.com/MothlightSys), [brvteforce](https://github.com/brvteforce) (online mom!), & [NarratorFights](https://github.com/NarratorFights)) I would mention racerzx (Vynro) as a friend but Idk if we are friends & I don't want to push the label on him.
 
-I also have ADHD! I got diagnosed when I was a toddler and I can get very hyperactive, I also end up assuming stuff a lot - like if I get ignored I think I did something wrong or if I get scolded I end up feeling horrible. I am getting better at not feeling that way though
+I also have ADHD! I got diagnosed when I was a toddler and I can get very hyperactive, I also end up assuming stuff a lot - like if I get ignored I think I did something wrong or if I get scolded I end up feeling horrible. I am getting better at not feeling that way though.
 
-I am anti-harrassment due to not liking people getting harrassed for what they did because then they are just getting more attention. If you harrass someone either publically or in private, then you are giving them the attention they want. If you give someone attention after they do something bad, they will think that maybe they can do more bad stuff & get more attention. (at least from my experience/POV.) I do think that people should be exposed for doing bad things irl or online but not to an extreme, because then people could find their IP address or personal info on said person if they look deep enough.
+I am anti-harrassment but do not mention proships, darkships, ect. to me.
 
 MY PERSONAL DNI is rlly just proshippers, weird adults, & blacklistee's!
+
+If you are my friend or sitting w/ me, I might be afk but I will still be looking at PT, I will also probably observe the people around me to see how they act. I prefer to observe people from a distance b4 becoming their friend because I don't want to friend the wrong people or people who won't work well w/ me! Don't be creeped out by this pleaseee it's an instinct I have had since I was young, it helps me get to know a person b4 we really interact. 
 
 <p align="center">
 End of BYI
@@ -74,7 +76,7 @@ I am also a Kemonomimi!
 
 My Kemonomimi types are German Shepard, Golden Retriever & Orange cat (maybe more? Give me ideas!)
 
-I am usaully at docks as my IRL skin, my oc Sweet Heat or my Fez skin
+I am usaully at docks as my IRL skin, my oc Sweet Heat or my Fez skin.
 
    <p align="left"> 
   <img width="500" alt="image-2024-05-26-153929846" src="https://github.com/user-attachments/assets/6755bf62-f292-426f-88e6-9771f8de55bf" /> 
@@ -83,7 +85,7 @@ Timezone: (UTC -05:00)
 
 I am from the USA but I am also Irish & Ukrainian & some other stuff!
 
-I am very active on Ponytown and Discord!
+I am active on Ponytown and Discord!
 
 As you can probably tell I LOVE Pinkie Pie!!
 
