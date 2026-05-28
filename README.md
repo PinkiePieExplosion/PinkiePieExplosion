@@ -45,9 +45,9 @@
 
 Hi my name is Pinkie Pie!
 
-I am 14 to 15+! (B-day June 27 - the age thingie will change soon)
+I am 14 to 15+! (B-day June 27)
 
-I am Panromantic, Almondsexual (but im starting to lean to Omnisexual), Nonbinary (strictly they/them only)
+I am Panromantic, Almondsexual (but im starting to lean to Omnisexual), Nonbinary (PREFER they/them but idm he/him - NO SHE/HER.)
 
 I love Tomadachi Life: Living the Dream, RDR2, Rick & Morty, Smiling Friends, PokeMon, TWD, MHA, & probs more! I specifically like Negan, Rick, Daryl and Lizzie from TWD! I like all the main characters in Smiling Friends (Pim, Charlie, Glep & Alan!) except Boss- he is a little too creepy for me 
 
