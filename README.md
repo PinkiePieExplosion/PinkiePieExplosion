@@ -65,7 +65,7 @@ I also have ADHD! I got diagnosed when I was a toddler and I can get very hypera
 
 I am anti-harrassment but do not mention proships, darkships, ect. to me.
 
-MY PERSONAL DNI is rlly just proshippers, weird adults, & blacklistee's!
+MY PERSONAL DNI is rlly just proshippers, weird adults, & STILL ACTIVE blacklistee's!
 
 If you are my friend or sitting w/ me, I might be afk but I will still be looking at PT, I will also probably observe the people around me to see how they act. I prefer to observe people from a distance b4 becoming their friend because I don't want to friend the wrong people or people who won't work well w/ me! Don't be creeped out by this pleaseee it's an instinct I have had since I was young, it helps me get to know a person b4 we really interact. 
 
