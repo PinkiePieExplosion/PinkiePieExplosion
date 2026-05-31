@@ -81,7 +81,7 @@ I am usaully at docks as my IRL skin, my oc Sweet Heat or my Fez skin.
    <p align="left"> 
   <img width="500" alt="image-2024-05-26-153929846" src="https://github.com/user-attachments/assets/6755bf62-f292-426f-88e6-9771f8de55bf" /> 
 
-Timezone: (UTC -05:00)
+Timezone: (UTC -04:00)
 
 I am from the USA but I am also Irish & Ukrainian & some other stuff!
 
