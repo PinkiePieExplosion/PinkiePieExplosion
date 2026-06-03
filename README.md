@@ -90,7 +90,7 @@ I am from the USA but I am also Irish & Ukrainian & some other stuff!
 
 I am active on Ponytown and Discord!
 
-As you can probably tell I LOVE Pinkie Pie & Mountain Dew
+As you can probably tell I LOVE Pinkie Pie & Mountain Dew!! My favorite flavor is Baja-Blast (Sugar free) - it tastes better when its sugar free ngl.
 
 <img width="200" alt="tumblr_7ff2efd74f8331fb8a110b638a7f8af5_0cfebffa_250" src="https://github.com/user-attachments/assets/a62a7c59-9a67-488b-b830-1fee38fd2252" />
 
