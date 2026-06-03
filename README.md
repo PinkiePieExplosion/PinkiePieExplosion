@@ -90,7 +90,9 @@ I am from the USA but I am also Irish & Ukrainian & some other stuff!
 
 I am active on Ponytown and Discord!
 
-As you can probably tell I LOVE Pinkie Pie!!
+As you can probably tell I LOVE Pinkie Pie & Mountain Dew
+
+<img width="200" alt="tumblr_7ff2efd74f8331fb8a110b638a7f8af5_0cfebffa_250" src="https://github.com/user-attachments/assets/a62a7c59-9a67-488b-b830-1fee38fd2252" />
 
 Im interested in criminals, psychology, murderers/murders & anything dealing with crimes because of my grandpa (RIP papa.) He did a lot of stuff involving all of that, he was a Grade 1 Detective (the highest grade you can be) in the New York police dept. then he served in the Army for 3 years before he became a Police Officer.
 
