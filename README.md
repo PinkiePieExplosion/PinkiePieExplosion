@@ -46,31 +46,31 @@
 
 <img width="150" height="20" alt="a17" src="https://github.com/user-attachments/assets/88489a30-984d-4eb7-ab5d-15736b718d06" /> <img width="150" alt="c15" src="https://github.com/user-attachments/assets/6a25ece7-1667-464f-b579-70dca42df35a" /> ![555674442-70a29c25-512c-42e0-a3f1-0e14302646ff](https://github.com/user-attachments/assets/31da74dc-3e36-4a22-ba90-1888c8a5d556) 
 
-Hi my name is Pinkie Pie!
+Hi, my name is Pinkie Pie!
 
 I am 14 to 15+! (B-day June 27)
 
 I am Panromantic, Omnicurious, Abrosexual, Nonbinary (They/Them/He - NO SHE/HER), & Disabled Pride!!
 
-I love Tomadachi Life: Living the Dream, RDR2, Rick & Morty, Smiling Friends, PokeMon, TWD, MHA, & probs more! I specifically like Negan, Rick, Daryl and Lizzie from TWD! I like all the main characters in Smiling Friends (Pim, Charlie, Glep & Alan!) except Boss- he is a little too creepy for me 
+I love Tomadachi Life: Living the Dream, RDR2, Rick & Morty, Smiling Friends, PokeMon, TWD, MHA, & probs more! I specifically like Negan, Rick, Daryl, and Lizzie from TWD! I like all the main characters in Smiling Friends (Pim, Charlie, Glep & Alan!) except Boss- he is a little too creepy for me 
 
-My hyperfixation atm is TWD - specifically Negan (my favorite character in TWD atm & sadly could not find any blinkies for him...,) Rick, Daryl and Lizzie! I hv not watched a ton & hv mostly seen them through tiktok edits!
+My hyperfixation atm is TWD - specifically Negan (my favorite character in TWD atm & sadly could not find any blinkies for him...) Rick, Daryl, and Lizzie! I have not watched a ton & have mostly seen them through TikTok edits!
 
 <p align="center">
 BYI
 
-I have Social Anxiety (MOSTLY with people my age - a tiny bit with people younger than me irl and none really with adults/people older) It affects me a lot when it comes to irl but a tiny bit less online. I AM safe online PLEASE DON'T WORRY - I don't get EXTREMELY close to the adult friends I have unless they have earned my trust and the adult friends I do have online and irl I have either known them well enough to be comfortable around them or (they are my parents friends/my parents know them well - mostly applies for irl.) I can make friends with people younger than me or my age online but it isn't as easy for me. 
+I have Social Anxiety (MOSTLY with people my age - a tiny bit with people younger than me irl, and none really with adults/people older). It affects me a lot in irl, but a tiny bit less online. I AM safe online. PLEASE DON'T WORRY - I don't get EXTREMELY close to the adult friends I have unless they have earned my trust, and the adult friends I do have online and irl, I have either known them well enough to be comfortable around them or (they are my parents' friends/my parents know them well - mostly applies for irl.) I can make friends with people younger than me or my age online, but it isn't as easy for me. 
 
 - I have a couple friends around my age ([Teratophilia](https://github.com/Teratophilia) & [winterprisonn](https://github.com/winterprisonn)) 
-- But I also have friends older than me who have either just gained my trust or I look up to them! ([MothlightSys](https://github.com/MothlightSys), [brvteforce](https://github.com/brvteforce) (online mom!), & [NarratorFights](https://github.com/NarratorFights)) I would mention racerzx (Vynro) as a friend but Idk if we are friends & I don't want to push the label on him.
+- But I also have friends older than me who have either just gained my trust or I look up to them! ([MothlightSys](https://github.com/MothlightSys), [brvteforce](https://github.com/brvteforce) (online mom!), & [NarratorFights](https://github.com/NarratorFights)) I'd like to mention racerzx (Vynro) as a friend, but I'm not sure if we are friends & I don't want to push the label on him.
 
-I also have ADHD! I got diagnosed when I was a toddler and I can get very hyperactive, I also end up assuming stuff a lot - like if I get ignored I think I did something wrong or if I get scolded I end up feeling horrible. I am getting better at not feeling that way though.
+I also have ADHD! I got diagnosed when I was a toddler, and I can get very hyperactive. I also end up assuming stuff a lot - like if I get ignored, I think I did something wrong, or if I get scolded, I end up feeling horrible. I am getting better at not feeling that way, though.
 
-I am anti-harrassment but do not mention proships, darkships, ect. to me.
+I am anti-harassment, but do not mention proships, darkships, etc, to me. I am also pro-recovery!! 
 
-MY PERSONAL DNI is rlly just proshippers, weird adults, & STILL ACTIVE blacklistee's!
+MY PERSONAL DNI is really just proshippers, weird adults, & STILL ACTIVE blacklistee's!
 
-If you are my friend or sitting w/ me, I might be afk but I will still be looking at PT, I will also probably observe the people around me to see how they act. I prefer to observe people from a distance b4 becoming their friend because I don't want to friend the wrong people or people who won't work well w/ me! Don't be creeped out by this pleaseee it's an instinct I have had since I was young, it helps me get to know a person b4 we really interact. 
+If you are my friend or sitting w/ me, I might be afk, but I will still be looking at PT. I will also probably observe the people around me to see how they act. I prefer to observe people from a distance b4 becoming their friend because I don't want to friend the wrong people or people who won't work well w/ me! Don't be creeped out by this, pleaseee it's an instinct I have had since I was young; it helps me get to know a person b4 we really interact. 
 
 <p align="center">
 End of BYI
@@ -79,22 +79,22 @@ I am also a Kemonomimi!
 
 My Kemonomimi types are German Shepard, Golden Retriever & Orange cat (maybe more? Give me ideas!)
 
-I am usaully at docks as my IRL skin, my oc Sweet Heat or my Fez skin.
+I am usually at docks as my IRL skin, my oc Sweet Heat, or my Fez skin.
 
    <p align="left"> 
   <img width="500" alt="image-2024-05-26-153929846" src="https://github.com/user-attachments/assets/6755bf62-f292-426f-88e6-9771f8de55bf" /> 
 
 Timezone: (UTC -04:00)
 
-I am from the USA but I am also Irish & Ukrainian & some other stuff!
+I am from the USA, but I am also Irish & Ukrainian & some other stuff!
 
 I am active on Ponytown and Discord!
 
-As you can probably tell I LOVE Pinkie Pie & Mountain Dew!! My favorite flavor is Baja-Blast (Sugar free) - it tastes better when its sugar free ngl.
+As you can probably tell, I LOVE Pinkie Pie & Mountain Dew!! My favorite flavor is Baja-Blast (sugar-free) - it tastes better when it's sugar-free, ngl.
 
 <img width="200" alt="tumblr_7ff2efd74f8331fb8a110b638a7f8af5_0cfebffa_250" src="https://github.com/user-attachments/assets/a62a7c59-9a67-488b-b830-1fee38fd2252" />
 
-Im interested in criminals, psychology, murderers/murders & anything dealing with crimes because of my grandpa (RIP papa.) He did a lot of stuff involving all of that, he was a Grade 1 Detective (the highest grade you can be) in the New York police dept. then he served in the Army for 3 years before he became a Police Officer.
+I'm interested in criminals, psychology, murderers/murders & anything dealing with crimes because of my grandpa (RIP papa.) He did a lot of stuff involving all of that; he was a Grade 1 Detective (the highest grade you can be) in the New York police dept. Then he served in the Army for 3 years before he became a Police Officer.
 
 <p align="center">
 credit @lavendergalactic & anyone else on Tumblr for blinkies.
