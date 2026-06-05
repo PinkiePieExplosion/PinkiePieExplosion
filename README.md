@@ -77,7 +77,7 @@ End of BYI
 
 I am also a Kemonomimi! 
 
-My Kemonomimi types are German Shepard, Golden Retriever & Orange cat (maybe more? Give me ideas!)
+My Main Kemonomimi types are German Shepard & Hyena
 
 I am usually at docks as my IRL skin, my oc Sweet Heat, or my Fez skin.
 
