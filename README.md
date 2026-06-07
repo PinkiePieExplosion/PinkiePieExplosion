@@ -11,7 +11,7 @@
 <div align="center">
   
 ![](https://komarev.com/ghpvc/?username=PinkiePieExplosion-CO&label=Puppies!&color=ff70ae) <img width="30" alt="tumblr_c1b1664ebba83dee5f1cadb4699b578b_25e4246c_75" src="https://github.com/user-attachments/assets/8dee3b05-8d6c-4a38-aca9-cb78283d91e3" />
- <img alt="GitHub followers" src="https://img.shields.io/github/followers/PinkiePieExplosion?style=flat&label=Pup-Peroni's&color=ff70ae">
+ <img alt="GitHub followers" src="https://img.shields.io/github/followers/PinkiePieExplosion?style=flat&label=Pup-Peroni&color=ff70ae">
 </div>
 
 <div align="center">
