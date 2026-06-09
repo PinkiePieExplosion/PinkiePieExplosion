@@ -80,7 +80,7 @@ My Main Kemonomimi types are German Shepard & Hyena
 I am usually at docks as my IRL skin, my oc Sweet Heat, or my Fez skin.
 
    <p align="left"> 
-  <img width="500" alt="image-2024-05-26-153929846" src="https://github.com/user-attachments/assets/6755bf62-f292-426f-88e6-9771f8de55bf" /> 
+ <img width="500" alt="68747470733a2f2f66696c65732e636174626f782e6d6f652f6c6b693962332e676966" src="https://github.com/user-attachments/assets/a0b46814-cda3-489a-aa69-fc73937433d4" />
 
 Timezone: (UTC -04:00)
 
