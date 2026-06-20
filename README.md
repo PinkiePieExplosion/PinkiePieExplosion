@@ -75,7 +75,7 @@ End of BYI
 
 I am also a Kemonomimi! 
 
-My Main Kemonomimi types are German Shepard & Pomeranian!!
+My Main Kemonomimi types are German Shepherd & Pomeranian!!
 
 I am usually at docks as my IRL skin, my oc Sweet Heat, or my Fez skin.
 
