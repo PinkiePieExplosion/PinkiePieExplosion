@@ -44,11 +44,11 @@
 
 <img width="150" height="20" alt="a17" src="https://github.com/user-attachments/assets/88489a30-984d-4eb7-ab5d-15736b718d06" /> <img width="150" alt="c15" src="https://github.com/user-attachments/assets/6a25ece7-1667-464f-b579-70dca42df35a" /> ![555674442-70a29c25-512c-42e0-a3f1-0e14302646ff](https://github.com/user-attachments/assets/31da74dc-3e36-4a22-ba90-1888c8a5d556) 
 
-Hi, my name is Pinkie Pie!
+Hi, my name is Shepard!
 
 I am 14 to 15+! (B-day June 27)
 
-I am Panromantic, Omnicurious, Abrosexual, Nonbinary (Possible Demiboy? They/He - NO SHE/HER), & Disabled Pride!!
+I am Panromantic, Omnicurious, Abrosexual, & Demiboy (They/He - NO SHE/HER)!! I also use Disabled Pride!
 
 I love Tomadachi Life: Living the Dream, RDR2, Rick & Morty, Smiling Friends, PokeMon, TWD, MHA, & probs more! I specifically like Negan, Rick, Daryl, and Lizzie from TWD! I like all the main characters in Smiling Friends (Pim, Charlie, Glep & Alan!) except Boss- he is a little too creepy for me 
 
