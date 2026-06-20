@@ -3,8 +3,8 @@
 <img width="1000" alt="68747470733a2f2f692e6962622e636f2f4d444e35794e57502f74756d626c722d38383535623037363965643563383734373566373165313234613161616239642d66306636663434332d3430302e77656270" src="https://github.com/user-attachments/assets/1e4735b3-aaea-4948-ac5c-b98240ae7ba7" />
 
 <p align="center">
-  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=312argo3gyfsw7mhwzdd6tmswldm&redirect=true">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=312argo3gyfsw7mhwzdd6tmswldm&cover_image=true&theme=default&show_offline=false&background_color=322a2e&interchange=false&profanity=false&bar_color_cover=false&bar_color=ea6c98">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=312argo3gyfsw7mhwzdd6tmswldm&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=698769">
   </a>
 </p>
 
