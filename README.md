@@ -10,7 +10,7 @@
 
 <div align="center">
   
-![](https://komarev.com/ghpvc/?username=PinkiePieExplosion-CO&label=Puppies!&color=ff70ae) <img width="30" alt="tumblr_e4d8158b883d8ddbc24ddfb51c9ecc42_72bff471_75" src="https://github.com/user-attachments/assets/4bc7d609-58a0-4332-a8ae-918e351cf8ac" /> <img alt="GitHub followers" src="https://img.shields.io/github/followers/PinkiePieExplosion?style=flat&label=Pup-Peroni's&color=ff70ae">
+![](https://komarev.com/ghpvc/?username=PinkiePieExplosion-CO&label=Puppies!&color=698769) <img width="30" alt="tumblr_e4d8158b883d8ddbc24ddfb51c9ecc42_72bff471_75" src="https://github.com/user-attachments/assets/4bc7d609-58a0-4332-a8ae-918e351cf8ac" /> <img alt="GitHub followers" src="https://img.shields.io/github/followers/PinkiePieExplosion?style=flat&label=Pup-Peroni's&color=ff70ae">
 </div>
 
 <div align="center">
@@ -75,7 +75,7 @@ End of BYI
 
 I am also a Kemonomimi! 
 
-My Main Kemonomimi types are German Shepard & Hyena
+My Main Kemonomimi types are German Shepard & Pomeranian!!
 
 I am usually at docks as my IRL skin, my oc Sweet Heat, or my Fez skin.
 
