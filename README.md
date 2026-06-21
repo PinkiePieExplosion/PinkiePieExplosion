@@ -50,7 +50,7 @@ I am 14 to 15+! (B-day June 27)
 
 I am Panromantic, Omnicurious, Abrosexual, & Demiboy (They/He - NO SHE/HER)!! I also use Disabled Pride!
 
-I love Tomadachi Life: Living the Dream, RDR2, Rick & Morty, Smiling Friends, PokeMon, TWD, MHA, & probs more! I specifically like Negan, Rick, Daryl, and Lizzie from TWD! I like all the main characters in Smiling Friends (Pim, Charlie, Glep & Alan!) except Boss- he is a little too creepy for me 
+I love Tomadachi Life: Living the Dream, RDR2, Rick & Morty, COD (I use COD mobile & I'm lvl 148 & I'm a pro III!) Smiling Friends, PokeMon, TWD, MHA, & probs more! I specifically like Negan, Rick, Daryl, and Lizzie from TWD! I like all the main characters in Smiling Friends (Pim, Charlie, Glep & Alan!) except Boss- he is a little too creepy for me 
 
 My hyperfixation atm is TWD - specifically Negan (my favorite character in TWD atm & sadly could not find any blinkies for him...) Rick, Daryl, and Lizzie! I have not watched a ton & have mostly seen them through TikTok edits!
 
