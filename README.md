@@ -112,7 +112,7 @@ I can make Github repositories!: Examples below!! (Whisper me on pt for discord 
 
 <div align="center">
   
-GitHub User: [@TheUnthinkableMiracle](https://github.com/TheUnthinkableMiracle) - Not really associated with her. Grew apart but idk if she will get back in contact w/ me.
+GitHub User: [@TheUnthinkableMiracle](https://github.com/TheUnthinkableMiracle) - Made up
 </div>
 
  <p align="center"> 
@@ -123,7 +123,7 @@ GitHub User: [@TheUnthinkableMiracle](https://github.com/TheUnthinkableMiracle) 
 
 <div align="center"> 
   
-GitHub User: [@Hxrlequinn](https://github.com/Hxrlequinn) - Not really associated with them. Got back in contact sorta(?) Making GitHub for their alt.
+GitHub User: [@Hxrlequinn](https://github.com/Hxrlequinn) - Made GitHub 4 his alt. Made up
 </div>
 
  <p align="center"> 
@@ -145,7 +145,7 @@ GitHub user: none. - (not associated with - document got made on him, DO NOT WIT
 
 <div align="center"> 
   
-GitHub user: [@MothlightSys](https://github.com/MothlightSys) - COOL GUY!!! ER RULES CHAT!!
+GitHub user: [@MothlightSys](https://github.com/MothlightSys) - COOL GUY!!!
 </div> 
 
 <p align="center"> 
@@ -153,8 +153,6 @@ GitHub user: [@MothlightSys](https://github.com/MothlightSys) - COOL GUY!!! ER R
 
  <p align="center"> 
   <img width="1000" alt="image-2024-05-26-153929846" src="https://github.com/user-attachments/assets/6755bf62-f292-426f-88e6-9771f8de55bf" />
-
-  
 
 <p align="center">
 <img width="381" height="649" alt="unnamed" src="https://github.com/user-attachments/assets/6e4c9310-28e2-44e2-a58a-3961c5ae2279" /> <img width="355" height="649" alt="unnamed" src="https://github.com/user-attachments/assets/87d83122-c5df-426a-89e2-6c3f580f91c4" /> <img width="363" height="649" alt="unnamed" src="https://github.com/user-attachments/assets/64fc4799-d53e-42a8-9819-1a869a06c926" /> <img width="360" height="648" alt="unnamed" src="https://github.com/user-attachments/assets/0f04f875-dc01-43b8-a057-a99367e08b81" /> <img width="403" height="649" alt="unnamed" src="https://github.com/user-attachments/assets/0081a89d-95fe-49d1-b2a1-5f3fbe809f60" />
