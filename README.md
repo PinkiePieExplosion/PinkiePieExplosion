@@ -94,6 +94,8 @@ As you can probably tell, I LOVE Pinkie Pie & Mountain Dew!! My favorite flavor 
 
 I'm interested in criminals, psychology, murderers/murders & anything dealing with crimes because of my grandpa (RIP papa.) He did a lot of stuff involving all of that; he was a Grade 1 Detective (the highest grade you can be) in the New York police dept. Then he served in the Army for 3 years before he became a Police Officer.
 
+<img width="400" alt="Untitled-1" src="https://github.com/user-attachments/assets/2e8be71b-db94-4aa0-bad2-efd1c150f8f1" />
+
 <p align="center">
 credit @lavendergalactic & anyone else on Tumblr for blinkies.
 
