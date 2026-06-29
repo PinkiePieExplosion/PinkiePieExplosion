@@ -97,7 +97,10 @@ I'm interested in criminals, psychology, murderers/murders & anything dealing wi
 <p align="center">
 credit @lavendergalactic & anyone else on Tumblr for blinkies.
 
+<div align="center">
+  
 credit to [Teratophilia](https://github.com/Teratophilia) for the Mayor Jerry Banner!!
+</div>
 
 <img width="1000" alt="68747470733a2f2f692e6962622e636f2f4d444e35794e57502f74756d626c722d38383535623037363965643563383734373566373165313234613161616239642d66306636663434332d3430302e77656270" src="https://github.com/user-attachments/assets/1e4735b3-aaea-4948-ac5c-b98240ae7ba7" />
 
