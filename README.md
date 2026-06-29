@@ -14,7 +14,7 @@
 </div>
 
 <div align="center">
-<img src="https://readme-typing-svg.demolab.com?font=Comic+Sans+MS&size=15&duration=2500&pause=300&color=698769&background=f6b2be600&width=230&lines=Welcome+to+Shepherd's+GitHub!;I+hope+I+can+do+business+w/+you!" />
+<img src="https://readme-typing-svg.demolab.com?font=Comic+Sans+MS&size=15&duration=2500&pause=300&color=bcf1a6&background=f6b2be600&width=230&lines=Welcome+to+Shepherd's+GitHub!;I+hope+I+can+do+business+w/+you!" />
 </div>
 
  <p align="center"> 
