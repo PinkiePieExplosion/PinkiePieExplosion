@@ -68,7 +68,7 @@ I am anti-harassment, but do not mention proships, darkships, etc, to me. I am a
 
 MY PERSONAL DNI is really just proshippers, weird adults, & STILL ACTIVE blacklistee's!
 
-If you are my friend or sitting w/ me, I might be afk, but I will still be looking at PT. I will also probably observe the people around me to see how they act. I prefer to observe people from a distance b4 becoming their friend because I don't want to friend the wrong people or people who won't work well w/ me! Don't be creeped out by this, pleaseee it's an instinct I have had since I was young; it helps me get to know a person b4 we really interact. 
+I believe in equal rights. No one is above another person in race, gender, age, sexuality, religion, etc. I believe everyone should be treated equally. If a woman hits a man, he can hit back - and the same the other way around. I do believe that women have been more oppressed than men, but they shouldn't be treated as higher than men, and men shouldn't be treated as higher than women. 
 
 <p align="center">
 End of BYI
