@@ -60,7 +60,7 @@ BYI
 I have Social Anxiety (MOSTLY with people my age - a tiny bit with people younger than me irl, and none really with adults/people older). It affects me a lot in irl, but a tiny bit less online. I AM safe online. PLEASE DON'T WORRY - I don't get EXTREMELY close to the adult friends I have unless they have earned my trust, and the adult friends I do have online and irl, I have either known them well enough to be comfortable around them or (they are my parents' friends/my parents know them well - mostly applies for irl.) I can make friends with people younger than me or my age online, but it isn't as easy for me. 
 
 - I have a couple friends around my age ([Teratophilia](https://github.com/Teratophilia) & [winterprisonn](https://github.com/winterprisonn)) 
-- But I also have friends older than me who have either just gained my trust or I look up to them! ([MothlightSys](https://github.com/MothlightSys), [brvteforce](https://github.com/brvteforce) (online mom!), & [NarratorFights](https://github.com/NarratorFights)) I'd like to mention racerzx (Vynro) as a friend, but I'm not sure if we are friends & I don't want to push the label on him.
+- But I also have friends older than me who have either just gained my trust or I look up to them! ([MothlightSys](https://github.com/MothlightSys), & [NarratorFights](https://github.com/NarratorFights))
 
 I also have ADHD! I got diagnosed when I was a toddler, and I can get very hyperactive. I also end up assuming stuff a lot - like if I get ignored, I think I did something wrong, or if I get scolded, I end up feeling horrible. I am getting better at not feeling that way, though.
 
