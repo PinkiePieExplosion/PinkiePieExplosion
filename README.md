@@ -44,7 +44,7 @@
 
 <img width="150" height="20" alt="a17" src="https://github.com/user-attachments/assets/88489a30-984d-4eb7-ab5d-15736b718d06" /> <img width="150" alt="c15" src="https://github.com/user-attachments/assets/6a25ece7-1667-464f-b579-70dca42df35a" /> ![555674442-70a29c25-512c-42e0-a3f1-0e14302646ff](https://github.com/user-attachments/assets/31da74dc-3e36-4a22-ba90-1888c8a5d556) 
 
-Hi, my name is Shepard!
+Hi, my name is Shepherd!
 
 I am 15 - 15+! (B-day June 27)
 
@@ -53,6 +53,8 @@ I am Panromantic, Omnisexual, Abrosexual, & Demiboy (He/They - NO SHE/HER)!! I a
 I love Tomadachi Life: Living the Dream, RDR2, Rick & Morty, COD (I use COD mobile & I'm lvl 150 & I'm a Master I!) Smiling Friends, PokeMon, TWD, MHA, & probs more! I specifically like Negan, Rick, Daryl, and Lizzie from TWD! I like all the main characters in Smiling Friends (Pim, Charlie, Glep & Alan!) except Boss- he is a little too creepy for me 
 
 My hyperfixation atm is TWD + Hoppers - specifically Negan (my favorite character in TWD atm & sadly could not find any blinkies for him...) Rick, Daryl, and Lizzie! I have not watched a ton & have mostly seen them through TikTok edits! I also am fixated on Hoppers! Specifically, Mayor Jerry - as u can see on my Discord Profile on Guns.lol!!
+
+I want to be known as Ponytown's Fez (My main AFK skin is my Fez skin & i hv a ton of duplicates for certain things!!)
 
 <p align="center">
 BYI
