@@ -54,7 +54,7 @@ I love Tomadachi Life: Living the Dream, RDR2, Rick & Morty, COD (I use COD mobi
 
 My hyperfixation atm is TWD + Hoppers - specifically Negan (my favorite character in TWD atm & sadly could not find any blinkies for him...) Rick, Daryl, and Lizzie! I have not watched a ton & have mostly seen them through TikTok edits! I also am fixated on Hoppers! Specifically, Mayor Jerry - as u can see on my Discord Profile on Guns.lol!!
 
-PLEASE [TITLE-TOWN](https://github.com/title-town) I want to be known as Ponytown's Fez (My main AFK skin is my Fez skin & i hv a ton of duplicates for certain things!!)
+PLEASE [TITLE-TOWN](https://github.com/title-town) I WANT TO BE KNOWN AS PONYTOWN'S FEZ OR BLINKIE FREAK, OR GITHUB MAKER (My main AFK skin is my Fez skin & I have a ton of duplicates of him for certain afks!!)
 
 <p align="center">
 BYI
