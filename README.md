@@ -10,7 +10,7 @@
 
 <div align="center">
   
-![](https://komarev.com/ghpvc/?username=PinkiePieExplosion-CO&label=Puppies!&color=698769) <img width="30" alt="tumblr_e4d8158b883d8ddbc24ddfb51c9ecc42_72bff471_75" src="https://github.com/user-attachments/assets/4bc7d609-58a0-4332-a8ae-918e351cf8ac" /> <img alt="GitHub followers" src="https://img.shields.io/github/followers/PinkiePieExplosion?style=flat&label=Pup-Peroni's&color=ff70ae">
+![](https://komarev.com/ghpvc/?username=PinkiePieExplosion-CO&label=Puppies!&color=698769) <img width="40" alt="1396938799405338754" src="https://github.com/user-attachments/assets/82d92c63-87d3-41d0-b294-a9ab11ff853e" /> <img alt="GitHub followers" src="https://img.shields.io/github/followers/PinkiePieExplosion?style=flat&label=Pup-Peroni's&color=ff70ae">
 </div>
 
 <div align="center">
@@ -59,14 +59,14 @@ PLEASE [TITLE-TOWN](https://github.com/title-town) I WANT TO BE KNOWN AS PONYTOW
 <p align="center">
 BYI
 
-I have Social Anxiety (MOSTLY with people my age - a tiny bit with people younger than me irl, and none really with adults/people older). It affects me a lot in irl, but a tiny bit less online. I AM safe online. PLEASE DON'T WORRY - I don't get EXTREMELY close to the adult friends I have unless they have earned my trust, and the adult friends I do have online and irl, I have either known them well enough to be comfortable around them or (they are my parents' friends/my parents know them well - mostly applies for irl.) I can make friends with people younger than me or my age online, but it isn't as easy for me. 
+I have Social Anxiety (MOSTLY with people my age - a tiny bit with people younger than me irl, and none really with adults/people older than me). It affects me a lot in irl, but a tiny bit less online. I AM safe online. PLEASE DON'T WORRY - I don't get EXTREMELY close to the adult friends I have unless they have earned my trust, and the adult friends I do have online and irl, I have either known them well enough to be comfortable around them ( or they are my parents' friends/my parents know them well - this mostly applies for irl.) I can make friends with people younger than me or my age, but it isn't as easy for me. 
 
 - I have a couple friends around my age ([Teratophilia](https://github.com/Teratophilia) & [winterprisonn](https://github.com/winterprisonn)) 
 - But I also have friends older than me who have either just gained my trust or I look up to them! ([MothlightSys](https://github.com/MothlightSys), & [NarratorFights](https://github.com/NarratorFights))
 
-I also have ADHD! I got diagnosed when I was a toddler, and I can get very hyperactive. I also end up assuming stuff a lot - like if I get ignored, I think I did something wrong, or if I get scolded, I end up feeling horrible. I am getting better at not feeling that way, though.
+I also have ADHD! I got diagnosed when I was a toddler, and I can get very hyperactive. I also end up assuming stuff a lot - like if I get ignored, I think I did something wrong, or if I get scolded, I end up feeling horrible. I am getting better at not feeling that way, though! 
 
-I am anti-harassment, but do not mention proships, darkships, etc, to me. I am also pro-recovery!! 
+I am anti-harassment. I am also pro-recovery!! 
 
 MY PERSONAL DNI is really just proshippers, weird adults, & STILL ACTIVE blacklistee's!
 
@@ -75,9 +75,9 @@ I believe in equal rights. No one is above another person in race, gender, age, 
 <p align="center">
 End of BYI
 
-I am also a Kemonomimi! 
+<img width="30" alt="IMG_5384" src="https://github.com/user-attachments/assets/475490f1-8303-4f5b-a1bb-01c4e0ce7d3e" /> I am also a Kemonomimi!
 
-My Main Kemonomimi types are German Shepherd & Pomeranian!!
+My Main Kemonomimi types are German Shepherd & Pomeranian!! 
 
 I am usually at docks as my IRL skin, my oc Sweet Heat, or my Fez skin.
 
