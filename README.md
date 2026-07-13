@@ -70,7 +70,7 @@ I am anti-harassment. I am also pro-recovery!!
 
 MY PERSONAL DNI is really just proshippers, weird adults, & STILL ACTIVE blacklistee's!
 
-I believe in equal rights. No one is above another person in race, gender, age, sexuality, religion, etc. I believe everyone should be treated equally. If a woman hits a man, he can hit back - and the same the other way around. I do believe that women have been more oppressed than men, but they shouldn't be treated as higher than men, and men shouldn't be treated as higher than women. 
+I am a feminist & I believe in equal rights. No one is above another person in race, gender, age, sexuality, religion, etc. I believe everyone should be treated equally. If a man hits a woman aggressively, she can hit back in defense - and if a woman hits a man aggressively, he can hit back in defense. I do believe that women have been more oppressed than men. I won't deny that at all & I agree that men shouldn't be treated as higher than women, but women shouldn't be treated as higher than men either. 
 
 <p align="center">
 End of BYI
