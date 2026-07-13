@@ -50,19 +50,17 @@ I am 15 - 15+! (B-day June 27)
 
 I am Panromantic, Omnisexual, Abrosexual, & Demiboy (He/They - NO SHE/HER)!! I also use Disabled Pride!
 
-I love Tomadachi Life: Living the Dream, RDR2, Rick & Morty, COD (I use COD mobile & I'm lvl 150 & I'm a Master I!) Smiling Friends, PokeMon, TWD, MHA, & probs more! I specifically like Negan, Rick, Daryl, and Lizzie from TWD! I like all the main characters in Smiling Friends (Pim, Charlie, Glep & Alan!) except Boss- he is a little too creepy for me 
+I love Tomadachi Life: Living the Dream, RDR2, Rick & Morty, COD (I use COD Mobile & I'm lvl 150 & I'm a Master I!), Smiling Friends, Pokémon, TWD, MHA, & probs more! I specifically like Negan, Rick, Daryl, and Lizzie from TWD! I like all the main characters in Smiling Friends (Pim, Charlie, Glep & Alan!) except Boss- he is a little too creepy for me 
 
 My hyperfixation atm is TWD + Hoppers - specifically Negan (my favorite character in TWD atm & sadly could not find any blinkies for him...) Rick, Daryl, and Lizzie! I have not watched a ton & have mostly seen them through TikTok edits! I also am fixated on Hoppers! Specifically, Mayor Jerry - as u can see on my Discord Profile on Guns.lol!!
-
-PLEASE [TITLE-TOWN](https://github.com/title-town) I WANT TO BE KNOWN AS PONYTOWN'S FEZ OR BLINKIE FREAK, OR GITHUB MAKER (My main AFK skin is my Fez skin & I have a ton of duplicates of him for certain afks!!)
 
 <p align="center">
 BYI
 
-I have Social Anxiety (MOSTLY with people my age - a tiny bit with people younger than me irl, and none really with adults/people older than me). It affects me a lot in irl, but a tiny bit less online. I AM safe online. PLEASE DON'T WORRY - I don't get EXTREMELY close to the adult friends I have unless they have earned my trust, and the adult friends I do have online and irl, I have either known them well enough to be comfortable around them ( or they are my parents' friends/my parents know them well - this mostly applies for irl.) I can make friends with people younger than me or my age, but it isn't as easy for me. 
+I have Social Anxiety (MOSTLY with people my age - a tiny bit with people younger than me irl, and none really with adults/people older than me). It affects me a lot in irl, but a tiny bit less online. I AM safe online. PLEASE DON'T WORRY - I don't get EXTREMELY close to the adult friends I have unless they have earned my trust, and the adult friends I do have online and irl, I have either known them well enough to be comfortable around them ( or they are my parents' friends/my parents know them well - this mostly applies for irl.) I can make friends with people younger than me or my age, but it isn't as easy for me as with people older than me. 
 
 - I have a couple friends around my age ([Teratophilia](https://github.com/Teratophilia) & [winterprisonn](https://github.com/winterprisonn)) 
-- But I also have friends older than me who have either just gained my trust or I look up to them! ([MothlightSys](https://github.com/MothlightSys), & [NarratorFights](https://github.com/NarratorFights))
+- But I also have friends older than me who have either just gained my trust or I look up to! ([MothlightSys](https://github.com/MothlightSys), & [NarratorFights](https://github.com/NarratorFights))
 
 I also have ADHD! I got diagnosed when I was a toddler, and I can get very hyperactive. I also end up assuming stuff a lot - like if I get ignored, I think I did something wrong, or if I get scolded, I end up feeling horrible. I am getting better at not feeling that way, though! 
 
@@ -88,7 +86,7 @@ Timezone: (UTC -04:00)
 
 I am from the USA, but I am also Irish & Ukrainian & some other stuff!
 
-I am active on Ponytown (getting a new discord soon)
+I am active on Ponytown (getting a new Discord account soon)
 
 As you can probably tell, I LOVE Jerry & Mountain Dew!! My favorite flavor is Baja-Blast (sugar-free); it tastes better when it's sugar-free, ngl.
 
@@ -99,11 +97,11 @@ I'm interested in criminals, psychology, murderers/murders & anything dealing wi
 <img width="400" alt="Untitled-1" src="https://github.com/user-attachments/assets/2e8be71b-db94-4aa0-bad2-efd1c150f8f1" />
 
 <p align="center">
-credit @lavendergalactic & anyone else on Tumblr for blinkies.
+Credit @lavendergalactic & anyone else on Tumblr for blinkies.
 
 <div align="center">
   
-credit to [Teratophilia](https://github.com/Teratophilia) for the Mayor Jerry Banner & profile & the "Shepherd sucks" png!!
+Credit to [Teratophilia](https://github.com/Teratophilia) for the Mayor Jerry Banner & profile & the "Shepherd sucks" png!!
 </div>
 
 <img width="1000" alt="68747470733a2f2f692e6962622e636f2f4d444e35794e57502f74756d626c722d38383535623037363965643563383734373566373165313234613161616239642d66306636663434332d3430302e77656270" src="https://github.com/user-attachments/assets/1e4735b3-aaea-4948-ac5c-b98240ae7ba7" />
