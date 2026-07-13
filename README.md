@@ -52,15 +52,15 @@ I am Panromantic, Omnisexual, Abrosexual, & Demiboy (He/They - NO SHE/HER)!! I a
 
 I love Tomadachi Life: Living the Dream, RDR2, Rick & Morty, COD (I use COD Mobile & I'm lvl 150 & I'm a Master I!), Smiling Friends, Pokémon, TWD, MHA, & probs more! I specifically like Negan, Rick, Daryl, and Lizzie from TWD! I like all the main characters in Smiling Friends (Pim, Charlie, Glep & Alan!) except Boss- he is a little too creepy for me 
 
-My hyperfixation atm is TWD + Hoppers - specifically Negan (my favorite character in TWD atm & sadly could not find any blinkies for him...) Rick, Daryl, and Lizzie! I have not watched a ton & have mostly seen them through TikTok edits! I also am fixated on Hoppers! Specifically, Mayor Jerry - as u can see on my Discord Profile on Guns.lol!!
+My hyperfixation atm is TWD + Hoppers - specifically Negan, Rick, Daryl, and Lizzie! I have not watched a ton & have mostly seen them through TikTok edits! I also am fixated on Hoppers! Specifically, Mayor Jerry!
 
 <p align="center">
 BYI
 
-I have Social Anxiety (MOSTLY with people my age - a tiny bit with people younger than me irl, and none really with adults/people older than me). It affects me a lot in irl, but a tiny bit less online. I AM safe online. PLEASE DON'T WORRY - I don't get EXTREMELY close to the adult friends I have unless they have earned my trust, and the adult friends I do have online and irl, I have either known them well enough to be comfortable around them ( or they are my parents' friends/my parents know them well - this mostly applies for irl.) I can make friends with people younger than me or my age, but it isn't as easy for me as with people older than me. 
+I have Social Anxiety (MOSTLY with people my age - a tiny bit with people younger than me irl, and none really with adults/people older than me). It affects me a lot in irl, but a tiny bit less online. I AM as safe as I can possibly be online; there is always a risk. I can make friends with people younger than me or my age, but it isn't as easy for me as with people older than me. 
 
 - I have a couple friends around my age ([Teratophilia](https://github.com/Teratophilia) & [winterprisonn](https://github.com/winterprisonn)) 
-- But I also have friends older than me who have either just gained my trust or I look up to! ([MothlightSys](https://github.com/MothlightSys), & [NarratorFights](https://github.com/NarratorFights))
+- But I also have friends older than me who have either just gained my trust or I look up to! ([MothlightSys](https://github.com/MothlightSys), [NarratorFights](https://github.com/NarratorFights)) & [Star!](https://github.com/starlightswirl)
 
 I also have ADHD! I got diagnosed when I was a toddler, and I can get very hyperactive. I also end up assuming stuff a lot - like if I get ignored, I think I did something wrong, or if I get scolded, I end up feeling horrible. I am getting better at not feeling that way, though! 
 
