@@ -46,7 +46,7 @@
 
 Hi, my name is Shepherd!
 
-I am 15 - 15+! (B-day June 27)
+I am 15+! (B-day June 27)
 
 I am Panromantic, Omnisexual, Abrosexual, & Demiboy (He/They - NO SHE/HER)!! I also use Disabled Pride!
 
@@ -59,16 +59,16 @@ BYI
 
 I have Social Anxiety (MOSTLY with people my age - a tiny bit with people younger than me irl, and none really with adults/people older than me). It affects me a lot in irl, but a tiny bit less online. I AM as safe as I can possibly be online; there is always a risk. I can make friends with people younger than me or my age, but it isn't as easy for me as with people older than me. 
 
-- I have a couple of friends around my age [Teratophilia](https://github.com/Teratophilia) & [winterprisonn](https://github.com/winterprisonn)) 
+- I have a couple of friends around my age [Teratophilia](https://github.com/Teratophilia) & [winterprisonn](https://github.com/winterprisonn)
 - But I also have friends older than me who have either just gained my trust or whom I look up to! [MothlightSys](https://github.com/MothlightSys), [NarratorFights](https://github.com/NarratorFights) & [Star!](https://github.com/starlightswirl)
 
 I also have ADHD! I got diagnosed when I was a toddler, and I can get very hyperactive. I also end up assuming stuff a lot - like if I get ignored, I think I did something wrong, or if I get scolded, I end up feeling horrible. I am getting better at not feeling that way, though! 
 
 I am anti-harassment. I am also pro-recovery!! 
 
-MY PERSONAL DNI is really just proshippers, weird adults, & STILL ACTIVE blacklistee's!
+MY PERSONAL DNI is really just proshippers, weird adults, & STILL ACTIVE **SRS** blacklistee's!
 
-I am a feminist & I believe in equal rights. No one is above another person in race, gender, age, sexuality, religion, etc. I believe everyone should be treated equally. If a man hits a woman aggressively, she can hit back in defense - and if a woman hits a man aggressively, he can hit back in defense. I do believe that women have been more oppressed than men. I won't deny that at all & I agree that men shouldn't be treated as higher than women, but women shouldn't be treated as higher than men either. 
+I am a feminist & I believe in equal rights. No one is above another person in race, gender, age, sexuality, religion, etc. I believe everyone should be treated equally. If a man hits a woman aggressively, she can hit back in defense - and if a woman hits a man aggressively, he can hit back in defense. I do believe that women have been more oppressed than men & I won't deny that at all. I agree that men shouldn't be treated as higher than women, but women shouldn't be treated as higher than men either. 
 
 <p align="center">
 End of BYI
@@ -77,7 +77,7 @@ End of BYI
 
 My Main Kemonomimi types are German Shepherd & Pomeranian!! 
 
-I am usually at docks as my IRL skin, my oc Sweet Heat, or my Fez skin.
+I am usually at docks as my IRL skin or my Fez skin.
 
    <p align="left"> 
  <img width="500" alt="68747470733a2f2f66696c65732e636174626f782e6d6f652f6c6b693962332e676966" src="https://github.com/user-attachments/assets/a0b46814-cda3-489a-aa69-fc73937433d4" />
@@ -86,9 +86,9 @@ Timezone: (UTC -04:00)
 
 I am from the USA, but I am also Irish & Ukrainian & some other stuff!
 
-I am active on Ponytown (getting a new Discord account soon)
+I am active on Ponytown! (getting a new Discord account soon)
 
-As you can probably tell, I LOVE Jerry & Mountain Dew!! My favorite flavor is Baja-Blast (sugar-free); it tastes better when it's sugar-free, ngl.
+As you can probably tell, I LOVE Jerry from Hoppers & Mountain Dew!! My favorite flavor is Baja-Blast (sugar-free); it tastes better when it's sugar-free, ngl.
 
 <img width="200" alt="tumblr_7ff2efd74f8331fb8a110b638a7f8af5_0cfebffa_250" src="https://github.com/user-attachments/assets/a62a7c59-9a67-488b-b830-1fee38fd2252" />
 
