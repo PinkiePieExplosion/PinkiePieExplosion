@@ -68,11 +68,9 @@ I am anti-harassment. I am also pro-recovery!!
 
 MY PERSONAL DNI is really just proshippers, weird adults, & STILL ACTIVE **SRS** blacklistee's!
 
-I am a feminist & I believe in equal rights!
+I believe in equality for everyone when it comes to race, gender, religion, etc.!
 
 I see pros & cons to almost everything!
-
-My hot(?) takes: No one is above another person in race, gender, age, sexuality, religion, etc. I believe everyone should be treated equally. Women should have control over their bodies unless under certain circumstances, such as if they forced themselves onto a man & got pregnant. If a man hits a woman aggressively, she can hit back in defense - and if a woman hits a man aggressively, he can hit back in defense. I do believe that women have been more oppressed than men. Men go through MANY issues regarding their gender as well due to being "strong" or "brave." They are not the exact same as women's issues, but both versions still matter. I agree that men shouldn't be treated as higher than women, but women shouldn't be treated as higher than men either. It's wrong to praise women for one thing only to criticise men for doing the same thing (same thing for men getting praised but women getting criticised); some examples are, but not limited to: breaking something their partner owns & cherishes (that one TikTok trend where you break something your loved one loves but you hate), committing certain crimes, etc. - Please do tell me if I have messed up one of my hot takes in my ata! I am completely open to responses to them!
 
 <p align="center">
 End of BYI
