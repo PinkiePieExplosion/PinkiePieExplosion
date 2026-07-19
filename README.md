@@ -85,7 +85,11 @@ I have Social Anxiety (MOSTLY with people my age - a tiny bit with people younge
 
 I  also have ADHD! I got diagnosed when I was a toddler, and I can get very hyperactive. I also end up assuming stuff a lot - like if I get ignored, I think I did something wrong, or if I get scolded, I end up feeling horrible. I am getting better at not feeling that way, though! 
 
-I am anti-harassment. I am also pro-recovery!! 
+I'm not the best at venting to others, or I push serious stuff that has happened (specifically in my life) off if I do end up venting WITH PERMISSION to someone. I might randomly lore drop like "my mom left me when I was 5" (<-- this is an actual example in my life) if we are talking about srs topics & it correlates w/ the topic, but I won't act emotional about it. Though I am emotional about other things I shouldn't be, like if someone who has been important in my life but has done me wrong gets hurt, then I might cry or worry for them. 
+
+I also tend to self-sabotage my relationships by not talking to people I'm friends with, or I lose interest in people due to a lack of Dopamine. I am EXTREMELY sorry if this happens. I tend not to notice it when it starts happening, but that is NOT an excuse AT ALL for doing it. I am trying my VERY hardest to fix this, but I am not perfect & it might still happen.
+
+I am anti-harassment. I am also pro-recovery!
 
 MY PERSONAL DNI is really just proshippers, weird adults, & STILL ACTIVE **SRS** blacklistee's!
 
@@ -94,8 +98,6 @@ I believe in equality for everyone when it comes to race, gender, religion, etc.
 I see pros & cons to almost everything!
 
 I'm interested in criminals, psychology, murderers/murders & anything dealing with crimes because of my grandpa (RIP papa.) He did a lot of stuff involving all of that; he was a Grade 1 Detective (the highest grade you can be) in the New York police dept. Then he served in the Army for 3 years before he became a Police Officer. So be warned if we talk about smth w/ police or crimes, then I might bring up some stuff that I have learned to do from experience & watching interrogations. 
-
-I'm not the best at venting to others, or I push serious stuff that has happened (specifically in my life) off if I do end up venting WITH PERMISSION to someone. I might randomly lore drop like "my mom left me when I was 5" (<-- this is an actual example in my life) if we are talking about srs topics & it correlates w/ the topic, but I won't act emotional about it. Though I am emotional about other things I shouldn't be, like if someone who has been important in my life but has done me wrong gets hurt, then I might cry or worry for them. 
 
 </details>
 
