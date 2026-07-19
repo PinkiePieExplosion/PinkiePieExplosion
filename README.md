@@ -83,21 +83,19 @@ I have Social Anxiety (MOSTLY with people my age - a tiny bit with people younge
 - I have a couple of friends around my age [Teratophilia](https://github.com/Teratophilia) & [winterprisonn](https://github.com/winterprisonn)
 -  But I also have friends older than me who have either just gained my trust or whom I look up to! [MothlightSys](https://github.com/MothlightSys), [NarratorFights](https://github.com/NarratorFights) & [Star!](https://github.com/starlightswirl)
 
-- I also have ADHD! I got diagnosed when I was a toddler, and I can get very hyperactive. I also end up assuming stuff a lot - like if I get ignored, I think I did something wrong, or if I get scolded, I end up feeling horrible. I am getting better at not feeling that way, though! 
+I  also have ADHD! I got diagnosed when I was a toddler, and I can get very hyperactive. I also end up assuming stuff a lot - like if I get ignored, I think I did something wrong, or if I get scolded, I end up feeling horrible. I am getting better at not feeling that way, though! 
 
-- I am anti-harassment. I am also pro-recovery!! 
+I am anti-harassment. I am also pro-recovery!! 
 
-- MY PERSONAL DNI is really just proshippers, weird adults, & STILL ACTIVE **SRS** blacklistee's!
+MY PERSONAL DNI is really just proshippers, weird adults, & STILL ACTIVE **SRS** blacklistee's!
 
-- I believe in equality for everyone when it comes to race, gender, religion, etc.!
+I believe in equality for everyone when it comes to race, gender, religion, etc.!
 
-- I see pros & cons to almost everything!
+I see pros & cons to almost everything!
 
-- I'm interested in criminals, psychology, murderers/murders & anything dealing with crimes because of my grandpa (RIP papa.) He did a lot of stuff involving all of that; he was a Grade 1 Detective (the highest grade you can be) in the New York police dept. Then he served in the Army for 3 years before he became a Police Officer.
+I'm interested in criminals, psychology, murderers/murders & anything dealing with crimes because of my grandpa (RIP papa.) He did a lot of stuff involving all of that; he was a Grade 1 Detective (the highest grade you can be) in the New York police dept. Then he served in the Army for 3 years before he became a Police Officer. So be warned if we talk about smth w/ police or crimes, then I might bring up some stuff that I have learned to do from experience & watching interrogations. 
 
-- I'm not the best at venting to others, or I push serious stuff that has happened (specifically in my life) off if I do end up venting WITH PERMISSION to someone. I might randomly lore drop like "my mom left me when I was 5" (<-- this is an actual example in my life) if we are talking about srs topics & it correlates w/ the topic, but I won't act emotional about it. Though I am emotional about other things I shouldn't be, like if someone who has been important in my life but has done me wrong gets hurt, then I might cry or worry for them. 
-
-- I'm interested in criminals, psychology, murderers/murders & anything dealing with crimes because of my grandpa (RIP papa.) He did a lot of stuff involving all of that; he was a Grade 1 Detective (the highest grade you can be) in the New York police dept. Then he served in the Army for 3 years before he became a Police Officer.
+I'm not the best at venting to others, or I push serious stuff that has happened (specifically in my life) off if I do end up venting WITH PERMISSION to someone. I might randomly lore drop like "my mom left me when I was 5" (<-- this is an actual example in my life) if we are talking about srs topics & it correlates w/ the topic, but I won't act emotional about it. Though I am emotional about other things I shouldn't be, like if someone who has been important in my life but has done me wrong gets hurt, then I might cry or worry for them. 
 
 </details>
 
