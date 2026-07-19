@@ -44,6 +44,9 @@
 
 <img width="150" height="20" alt="a17" src="https://github.com/user-attachments/assets/88489a30-984d-4eb7-ab5d-15736b718d06" /> <img width="150" alt="c15" src="https://github.com/user-attachments/assets/6a25ece7-1667-464f-b579-70dca42df35a" /> ![555674442-70a29c25-512c-42e0-a3f1-0e14302646ff](https://github.com/user-attachments/assets/31da74dc-3e36-4a22-ba90-1888c8a5d556) 
 
+<details>
+  <summary>──⠀Personal info　  </summary>
+
 Hi, my name is Shepherd!
 
 I am 15+! (B-day June 27)
@@ -54,47 +57,55 @@ I love Tomadachi Life: Living the Dream, RDR2, Rick & Morty, COD (I use COD Mobi
 
 My hyperfixation atm is TWD + Hoppers - specifically Negan, Rick, Daryl, and Lizzie! I have not watched a ton & have mostly seen them through TikTok edits! I also am fixated on Hoppers! Specifically, Mayor Jerry!
 
-<p align="center">
-BYI
-
-I have Social Anxiety (MOSTLY with people my age - a tiny bit with people younger than me irl, and none really with adults/people older than me). It affects me a lot in irl, but a tiny bit less online. I AM as safe as I can possibly be online; there is always a risk. I can make friends with people younger than me or my age, but it isn't as easy for me as with people older than me. 
-
-- I have a couple of friends around my age [Teratophilia](https://github.com/Teratophilia) & [winterprisonn](https://github.com/winterprisonn)
-- But I also have friends older than me who have either just gained my trust or whom I look up to! [MothlightSys](https://github.com/MothlightSys), [NarratorFights](https://github.com/NarratorFights) & [Star!](https://github.com/starlightswirl)
-
-I also have ADHD! I got diagnosed when I was a toddler, and I can get very hyperactive. I also end up assuming stuff a lot - like if I get ignored, I think I did something wrong, or if I get scolded, I end up feeling horrible. I am getting better at not feeling that way, though! 
-
-I am anti-harassment. I am also pro-recovery!! 
-
-MY PERSONAL DNI is really just proshippers, weird adults, & STILL ACTIVE **SRS** blacklistee's!
-
-I believe in equality for everyone when it comes to race, gender, religion, etc.!
-
-I see pros & cons to almost everything!
-
-<p align="center">
-End of BYI
-
-<img width="30" alt="IMG_5384" src="https://github.com/user-attachments/assets/475490f1-8303-4f5b-a1bb-01c4e0ce7d3e" /> I am also a Kemonomimi!
-
-My Main Kemonomimi types are German Shepherd & Pomeranian!! 
-
-I am usually at docks as my IRL skin or my Fez skin.
-
-   <p align="left"> 
- <img width="500" alt="68747470733a2f2f66696c65732e636174626f782e6d6f652f6c6b693962332e676966" src="https://github.com/user-attachments/assets/a0b46814-cda3-489a-aa69-fc73937433d4" />
-
 Timezone: (UTC -04:00)
 
 I am from the USA, but I am also Irish & Ukrainian & some other stuff!
 
 I am active on Ponytown! (getting a new Discord account soon)
 
+I am usually at docks as my IRL skin or my Fez skin.
+
+<img width="30" alt="IMG_5384" src="https://github.com/user-attachments/assets/475490f1-8303-4f5b-a1bb-01c4e0ce7d3e" /> I am also a Kemonomimi!
+
+My Main Kemonomimi types are German Shepherd & Pomeranian!! 
+
 As you can probably tell, I LOVE Jerry from Hoppers & Mountain Dew!! My favorite flavor is Baja-Blast (sugar-free); it tastes better when it's sugar-free, ngl.
 
 <img width="200" alt="tumblr_7ff2efd74f8331fb8a110b638a7f8af5_0cfebffa_250" src="https://github.com/user-attachments/assets/a62a7c59-9a67-488b-b830-1fee38fd2252" />
 
-I'm interested in criminals, psychology, murderers/murders & anything dealing with crimes because of my grandpa (RIP papa.) He did a lot of stuff involving all of that; he was a Grade 1 Detective (the highest grade you can be) in the New York police dept. Then he served in the Army for 3 years before he became a Police Officer.
+</details>
+
+<details>
+  <summary>──⠀BYI　  </summary>
+
+I have Social Anxiety (MOSTLY with people my age - a tiny bit with people younger than me irl, and none really with adults/people older than me). It affects me a lot in irl, but a tiny bit less online. I AM as safe as I can possibly be online; there is always a risk. I can make friends with people younger than me or my age, but it isn't as easy for me as with people older than me. 
+
+- I have a couple of friends around my age [Teratophilia](https://github.com/Teratophilia) & [winterprisonn](https://github.com/winterprisonn)
+-  But I also have friends older than me who have either just gained my trust or whom I look up to! [MothlightSys](https://github.com/MothlightSys), [NarratorFights](https://github.com/NarratorFights) & [Star!](https://github.com/starlightswirl)
+
+- I also have ADHD! I got diagnosed when I was a toddler, and I can get very hyperactive. I also end up assuming stuff a lot - like if I get ignored, I think I did something wrong, or if I get scolded, I end up feeling horrible. I am getting better at not feeling that way, though! 
+
+- I am anti-harassment. I am also pro-recovery!! 
+
+- MY PERSONAL DNI is really just proshippers, weird adults, & STILL ACTIVE **SRS** blacklistee's!
+
+- I believe in equality for everyone when it comes to race, gender, religion, etc.!
+
+- I see pros & cons to almost everything!
+
+- I'm interested in criminals, psychology, murderers/murders & anything dealing with crimes because of my grandpa (RIP papa.) He did a lot of stuff involving all of that; he was a Grade 1 Detective (the highest grade you can be) in the New York police dept. Then he served in the Army for 3 years before he became a Police Officer.
+
+- I'm not the best at venting to others, or I push serious stuff that has happened (specifically in my life) off if I do end up venting WITH PERMISSION to someone. I might randomly lore drop like "my mom left me when I was 5" (<-- this is an actual example in my life) if we are talking about srs topics & it correlates w/ the topic, but I won't act emotional about it. Though I am emotional about other things I shouldn't be, like if someone who has been important in my life but has done me wrong gets hurt, then I might cry or worry for them. 
+
+- I'm interested in criminals, psychology, murderers/murders & anything dealing with crimes because of my grandpa (RIP papa.) He did a lot of stuff involving all of that; he was a Grade 1 Detective (the highest grade you can be) in the New York police dept. Then he served in the Army for 3 years before he became a Police Officer.
+
+</details>
+
+<details>
+  <summary>──⠀Credits　  </summary>
+
+ <p align="left"> 
+ <img width="500" alt="68747470733a2f2f66696c65732e636174626f782e6d6f652f6c6b693962332e676966" src="https://github.com/user-attachments/assets/a0b46814-cda3-489a-aa69-fc73937433d4" />
 
 <img width="400" alt="Untitled-1" src="https://github.com/user-attachments/assets/2e8be71b-db94-4aa0-bad2-efd1c150f8f1" />
 
@@ -105,6 +116,8 @@ Credit @lavendergalactic & anyone else on Tumblr for blinkies.
   
 Credit to [Teratophilia](https://github.com/Teratophilia) for the Mayor Jerry Banner & profile & the "Shepherd sucks" png!!
 </div>
+
+</details>
 
 <img width="1000" alt="68747470733a2f2f692e6962622e636f2f4d444e35794e57502f74756d626c722d38383535623037363965643563383734373566373165313234613161616239642d66306636663434332d3430302e77656270" src="https://github.com/user-attachments/assets/1e4735b3-aaea-4948-ac5c-b98240ae7ba7" />
 
