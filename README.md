@@ -53,7 +53,7 @@ Hi, my name is Shepherd!
 
 I am 15+! (B-day June 27)
 
-I am Panromantic, Omnisexual, Abrosexual, & Boyspike (He/They - NO SHE/HER)!! I also use Disabled Pride!
+I am Panromantic, Omnisexual, Abrosexual, & Bigender (He/him - I feel like a girl & a boy but I DON'T want to be referred to with she/her)!! I also use Disabled Pride!
 
 I love Tomadachi Life: Living the Dream, RDR2, Rick & Morty, COD (I use COD Mobile & I'm lvl 150 & I'm a Master I!), Smiling Friends, Pokémon, TWD, MHA, & probs more! I specifically like Negan, Rick, Daryl, and Lizzie from TWD! I like all the main characters in Smiling Friends (Pim, Charlie, Glep & Alan!) except Boss- he is a little too creepy for me 
 
