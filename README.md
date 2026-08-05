@@ -106,7 +106,7 @@ I'm interested in criminals, psychology, murderers/murders & anything dealing wi
 <details>
   <summary>──⠀IWC/DNI　  </summary>
 
-DNI: Starlight (You know who u are!), Homophobes, racists, basic DNI!
+DNI: [Starlight](https://github.com/starlightswirl), Homophobes, racists, basic DNI. (I know I'm mentioned on Star's GitHub atm, but I am NOT their friend anymore; proof is in my following & followers - I only follow my friends & I temp block ppl who I don't like to get them out of my followers. Homophobes, racists, basic DNI
 
 IWC: mentioning of transformers or Godzilla - These things remind me of bad people, but you can still mention them AROUND me, just not directly to me unless you're asking why they are on my IWC!
   
