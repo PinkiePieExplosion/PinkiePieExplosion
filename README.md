@@ -80,7 +80,7 @@ As you can probably tell, I LOVE Jerry from Hoppers & Mountain Dew!! My favorite
 <details>
   <summary>──⠀BYI　  </summary>
 
-I have Social Anxiety (MOSTLY with people my age - a tiny bit with people younger than me irl, and none really with adults/people older than me). It affects me a lot in irl, but a tiny bit less online. I AM as safe as I can possibly be online; there is always a risk. I can make friends with people younger than me or my age, but it isn't as easy for me as with people older than me. 
+I have Social Anxiety (MOSTLY with people my age - a tiny bit with people younger than me irl, and none really with adults/people older than me). It affects me a lot in irl, but a tiny bit less online. I AM as safe as I can be online; there is always a risk. I can make friends with people younger than me or my age, but it isn't as easy for me as with people older than me. 
 
 - I have a couple of friends around my age [Teratophilia](https://github.com/Teratophilia), [winterprisonn](https://github.com/winterprisonn), [Kiki](https://github.com/pwppy), etc.
 -  But I also have friends older than me who have either just gained my trust or whom I look up to! [MothlightSys](https://github.com/MothlightSys), [Friz](https://github.com/eternalyou), etc.
@@ -101,6 +101,15 @@ I see pros & cons to almost everything!
 
 I'm interested in criminals, psychology, murderers/murders & anything dealing with crimes because of my grandpa (RIP papa.) He did a lot of stuff involving all of that; he was a Grade 1 Detective (the highest grade you can be) in the New York police dept. Then he served in the Army for 3 years before he became a Police Officer. So be warned if we talk about smth w/ police or crimes, then I might bring up some stuff that I have learned to do from experience & watching interrogations. 
 
+</details>
+
+<details>
+  <summary>──⠀IWC/DNI　  </summary>
+
+DNI: Starlight (You know who u are!), Homophobes, racists, basic DNI!
+
+IWC: mentioning of transformers or Godzilla - These things remind me of bad people, but you can still mention them AROUND me, just not directly to me unless you're asking why they are on my IWC!
+  
 </details>
 
 <details>
