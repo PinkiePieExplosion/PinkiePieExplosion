@@ -89,9 +89,11 @@ I have Social Anxiety (MOSTLY with people my age - a tiny bit with people younge
 
 I  also have ADHD! I got diagnosed when I was a toddler, and I can get very hyperactive. I also end up assuming stuff a lot - like if I get ignored, I think I did something wrong, or if I get scolded, I end up feeling horrible. I am getting better at not feeling that way, though! 
 
-I'm not the best at venting to others, or I push serious stuff that has happened (specifically in my life) off if I do end up venting WITH PERMISSION to someone. I might randomly lore drop like "my mom left me when I was 5" (<-- this is an actual example in my life) if we are talking about srs topics & it correlates w/ the topic, but I won't act emotional about it. Though I am emotional about other things I shouldn't be, like if someone who has been important in my life but has done me wrong gets hurt, then I might cry or worry for them. 
+I'm not the best at venting to others (venting with permission of course) or I push serious stuff that has happened (specifically in my life) off if I do end up bringing it up. I might randomly lore drop like "my mom left me when I was 5" <-- (this is an actual example in my life) if we are talking about srs topics & it correlates w/ said topic, but I won't act emotional about it. Though I am emotional about other things I shouldn't be, like if someone who has been important in my life but has done me wrong gets hurt, then I might cry or worry for them out of instinct (this doesn't mean I support their actions or anything they have done, I just have high sympathy towards some people)
 
 I also tend to self-sabotage my relationships by not talking to people I'm friends with, or I lose interest in people due to a lack of Dopamine. I am EXTREMELY sorry if this happens. I tend not to notice it when it starts happening, but that is NOT an excuse AT ALL for doing it. I am trying my VERY hardest to fix this, but I am not perfect & it might still happen.
+
+I am sorta a pushover, not as much online as IRL but still important. I also struggle w/ cutting people off easily unless they have done something HORRID. I struggle due to the fact I like my friends & I have had long periods in my life alone w/ no friends, it hurts to let them go but I am trying my best to fix this as well. 
 
 I am anti-harassment. I am also pro-recovery!
 
