@@ -95,7 +95,7 @@ I also tend to self-sabotage my relationships by not talking to people I'm frien
 
 I am sorta a pushover, not as much online as IRL but still important. I also struggle w/ cutting people off easily unless they have done something HORRID. I struggle due to the fact I like my friends & I have had long periods in my life alone w/ no friends, it hurts to let them go but I am trying my best to fix this as well. 
 
-I am anti-harassment. I am also pro-recovery!
+I am anti-harassment. I am also pro-recovery & pro-life! 
 
 MY PERSONAL DNI is really just proshippers, weird adults, & STILL ACTIVE **SRS** blacklistee's!
 
