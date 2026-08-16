@@ -134,6 +134,15 @@ Credit to [Teratophilia](https://github.com/Teratophilia) for the Mayor Jerry Ba
 
 </details>
 
+<p align="center">
+ <img width="500" alt="68747470733a2f2f66696c65732e636174626f782e6d6f652f6c6b693962332e676966" src="https://github.com/user-attachments/assets/a0b46814-cda3-489a-aa69-fc73937433d4" />
+
+<p align="center">
+This GitHub was created by:
+
+<p align="center">
+<img width="600" alt="6954d7bb-8923-473b-a1bc-af19ccf817c6" src="https://github.com/user-attachments/assets/1b0125c1-5655-4538-8672-4bda9303f85c" />
+
 <img width="1000" alt="68747470733a2f2f692e6962622e636f2f4d444e35794e57502f74756d626c722d38383535623037363965643563383734373566373165313234613161616239642d66306636663434332d3430302e77656270" src="https://github.com/user-attachments/assets/1e4735b3-aaea-4948-ac5c-b98240ae7ba7" />
 
 <img width="1000" alt="image-2024-05-24-133746247" src="https://github.com/user-attachments/assets/7eb11f41-2146-496a-a884-c7e188211837" />
