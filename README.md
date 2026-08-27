@@ -118,9 +118,6 @@ IWC: mentioning of transformers or Godzilla - These things remind me of bad peop
 <details>
   <summary>──⠀Credits　  </summary>
 
- <p align="left"> 
- <img width="500" alt="68747470733a2f2f66696c65732e636174626f782e6d6f652f6c6b693962332e676966" src="https://github.com/user-attachments/assets/a0b46814-cda3-489a-aa69-fc73937433d4" />
-
 <img width="400" alt="Untitled-1" src="https://github.com/user-attachments/assets/2e8be71b-db94-4aa0-bad2-efd1c150f8f1" />
 
 <p align="center">
