@@ -43,7 +43,7 @@
 <details>
   <summary>──⠀Personal info　  </summary>
 
-Hi, my name is Shepherd!
+Hi, my name is Shepherd or Fez - whichever one you prefer!
 
 I am 15+! (B-day June 27)
 
@@ -57,13 +57,15 @@ Timezone: (UTC -04:00)
 
 I am from the USA, but I am also Irish & Ukrainian & some other stuff!
 
-I am active on Ponytown! (getting a new Discord account soon)
+I am active on Ponytown & Discord!
 
-I am usually at docks as my IRL skin or my Fez skin.
+I am usually at docks in MY Fez skin, usually my untinted version or some other version of it!
 
 <img width="30" alt="IMG_5384" src="https://github.com/user-attachments/assets/475490f1-8303-4f5b-a1bb-01c4e0ce7d3e" /> I am also a Kemonomimi!
 
 My Main Kemonomimi types are German Shepherd & Pomeranian!! 
+
+My fursona is my Fez skin! He is also my kin, i have implemented a lot of my personality into him & I hv started to reply to Fez!
 
 As you can probably tell, I LOVE Jerry from Hoppers & Mountain Dew!! My favorite flavor is Baja-Blast (sugar-free); it tastes better when it's sugar-free, ngl.
 
@@ -76,36 +78,28 @@ As you can probably tell, I LOVE Jerry from Hoppers & Mountain Dew!! My favorite
 
 I have Social Anxiety (MOSTLY with people my age - a tiny bit with people younger than me irl, and none really with adults/people older than me). It affects me a lot in irl, but a tiny bit less online. I AM as safe as I can be online; there is always a risk. I can make friends with people younger than me or my age, but it isn't as easy for me as with people older than me. 
 
-- I have a couple of friends around my age [winterprisonn](https://github.com/winterprisonn), [Kiki](https://github.com/pwppy), etc.
--  But I also have friends older than me who have either just gained my trust or whom I look up to! [MothlightSys](https://github.com/MothlightSys), [Friz](https://github.com/eternalyou), etc.
+I  also have ADHD! I got diagnosed when I was a toddler, and I can get very hyperactive. I also end up assuming stuff a lot - like if I get ignored, I think I did something wrong, or if I get scolded, I end up feeling horrible. I am getting better at not feeling that way, though! I also tend to self-sabotage my relationships by not talking to people I'm friends with, or I lose interest in people due to a lack of Dopamine due to my ADHD. I am EXTREMELY sorry if this happens. I tend not to notice it when it starts happening, but that is NOT an excuse AT ALL for doing it. I am trying my VERY hardest to fix this, but I am not perfect & it might still happen.
 
-I  also have ADHD! I got diagnosed when I was a toddler, and I can get very hyperactive. I also end up assuming stuff a lot - like if I get ignored, I think I did something wrong, or if I get scolded, I end up feeling horrible. I am getting better at not feeling that way, though! 
+I usually push serious stuff that has happened (specifically in my life) off if I do bring it up. I might randomly lore drop about my life if we are talking about srs topics & it correlates w/ that topic, but I won't act emotional about it. I am pretty sure I have selective sympathy & I am a over-sympathizer, I put a ton of people before myself but at the same time I put myself before other people in a more "selfish way," (in my POV it seems selfish) as in I won't do work for someone just because I don't feel like doing it. 
 
-I'm not the best at venting to others (venting with permission of course) or I push serious stuff that has happened (specifically in my life) off if I do end up bringing it up. I might randomly lore drop like "my mom left me when I was 5" <-- (this is an actual example in my life) if we are talking about srs topics & it correlates w/ said topic, but I won't act emotional about it. Though I am emotional about other things I shouldn't be, like if someone who has been important in my life but has done me wrong gets hurt, then I might cry or worry for them out of instinct (this doesn't mean I support their actions or anything they have done, I just have high sympathy towards some people)
+I am pretty sure I have "happy depression," (I am not sure atm bc about it & i am not diagnosed so please take my diagnosis w/ a grain of salt but I am usually happy go lucky in public even if I do feel like shit) its basically where a person appears cheerful and successful on the outside while secretly experiencing severe internal distress. I do experience suicidal ideation but its completely passive. Passive suicidal ideation is when you have suicidal thoughts occur without any desire to make a plan of action to harm yourself. I often think how much better my parents (dad & grandma) would be w/o me to deal with. I'm a major factor w/ their fights & their relationship as a whole in my eyes at least.
 
-I also tend to self-sabotage my relationships by not talking to people I'm friends with, or I lose interest in people due to a lack of Dopamine. I am EXTREMELY sorry if this happens. I tend not to notice it when it starts happening, but that is NOT an excuse AT ALL for doing it. I am trying my VERY hardest to fix this, but I am not perfect & it might still happen.
+I am also pretty sure I might hv anger issues (I am not diagnosed so take this w/ a grain of salt.) I get snappy very easily but its rare, it usually happens if someone backstabs me, I hv had situations where I get very irrational & want to like call them out on wht they did even when it isn't the right thing to do. I am not snappy towards my friends at all unless they hv tested my patience one too many times. Irl its a completely
 
-I am sorta a pushover, not as much online as IRL but still important. I also struggle w/ cutting people off easily unless they have done something HORRID. I struggle due to the fact I like my friends & I have had long periods in my life alone w/ no friends, it hurts to let them go but I am trying my best to fix this as well. 
-
-I am anti-harassment. I am also pro-recovery & pro-life! 
-
-MY PERSONAL DNI is really just proshippers, weird adults, & STILL ACTIVE **SRS** blacklistee's!
-
-I believe in equality for everyone when it comes to race, gender, religion, etc.!
+I believe in equality for everyone when it comes to race, gender, religion, etc.! I am anti-harassment. I am also pro-recovery & pro-life! 
 
 I see pros & cons to almost everything!
 
 I'm interested in criminals, psychology, murderers/murders & anything dealing with crimes because of my grandpa (RIP papa.) He did a lot of stuff involving all of that; he was a Grade 1 Detective (the highest grade you can be) in the New York police dept. Then he served in the Army for 3 years before he became a Police Officer. So be warned if we talk about smth w/ police or crimes, then I might bring up some stuff that I have learned to do from experience & watching interrogations. 
-
 </details>
 
 <details>
   <summary>──⠀IWC/DNI　  </summary>
 
-DNI: Starlight, Homophobes, racists, basic DNI. (I know I'm mentioned on Star's GitHub atm, but I am NOT their friend anymore; proof is in my following & followers - I only follow my friends & I temp block ppl who I don't like to get them out of my followers.)
+DNI: Homophobes, racists, basic DNI rlly!
 
-IWC: mentioning of transformers or Godzilla - These things remind me of bad people, but you can still mention them AROUND me, just not directly to me unless you're asking why they are on my IWC!
-  
+IWC: mentioning of transformers or Godzilla TO ME DIRECTLY - These things remind me of bad people, but you can still mention them AROUND me, just not directly to me unless you're asking why they are on my IWC!
+
 </details>
 
 <details>
