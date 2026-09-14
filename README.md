@@ -51,7 +51,7 @@ I am Panromantic, Omnisexual, Abrosexual, but Im also questioning my gender & se
 
 I love Tomadachi Life: Living the Dream, RDR2, Rick & Morty, COD (I use COD Mobile & I'm lvl 150 & I'm a Master I!), Smiling Friends, Pokémon, TWD, MHA, & probs more! I specifically like Negan, Rick, Daryl, and Lizzie from TWD! I like all the main characters in Smiling Friends (Pim, Charlie, Glep & Alan!) except Boss- he is a little too creepy for me 
 
-My hyperfixation atm is TWD + Hoppers - specifically Negan, Rick, Daryl, and Lizzie! I have not watched a ton & have mostly seen them through TikTok edits! I also am fixated on Hoppers! Specifically, Mayor Jerry!
+My hyperfixation atm is TWD + Hoppers - specifically Negan, Rick, Daryl, and Lizzie! I have not watched a ton & have mostly seen them through TikTok edits! I also am fixated on my Fez!
 
 Timezone: (UTC -04:00)
 
@@ -76,11 +76,11 @@ As you can probably tell, I LOVE Jerry from Hoppers & Mountain Dew!! My favorite
 <details>
   <summary>──⠀BYI　  </summary>
 
-I have Social Anxiety *(MOSTLY with people my age - a tiny bit with people younger than me irl, and none really with adults/people older than me).* It affects me a lot in irl, but a tiny bit less online. I AM as safe as I can be online; there is always a risk. I can make friends with people younger than me or my age, but it isn't as easy as doing it with people older!
+I have Social Anxiety ***(MOSTLY with people my age - a tiny bit with people younger than me irl, and none really with adults/people older than me).*** It affects me a lot in irl, but a tiny bit less online. I AM as safe as I can be online; there is always a risk. I can make friends with people younger than me or my age, but it isn't as easy as doing it with people older!
 
 I  also have ADHD! I got diagnosed when I was a toddler, and I can get very hyperactive. I also end up assuming stuff a lot - like if I get ignored, I think I did something wrong, or if I get scolded, I end up feeling horrible. I am getting better at not feeling that way, though! I also tend to self-sabotage my relationships by not talking to people I'm friends with, or I lose interest in people due to a lack of Dopamine due to my ADHD. I am EXTREMELY sorry if this happens. I tend not to notice it when it starts happening, but that is NOT an excuse AT ALL for doing it. I am trying my VERY hardest to fix this, but I am not perfect & it might still happen.
 
-I usually push serious stuff that has happened *(specifically & only in my life)* off if I do bring it up. I might randomly lore drop about my life if we are talking about srs topics & it correlates w/ that topic, but I won't act emotional about it. I am pretty sure I have selective sympathy & I am a over-sympathizer, I put a ton of people before myself but at the same time I put myself before other people in a more "selfish way," (in my POV it seems selfish) as in I won't do work for someone just because I don't feel like doing it. 
+I usually push serious stuff that has happened ***(specifically & only in my life)*** off if I do bring it up. I might randomly lore drop about my life if we are talking about srs topics & it correlates w/ that topic, but I won't act emotional about it. I am pretty sure I have selective sympathy & I am a over-sympathizer, I put a ton of people before myself but at the same time I put myself before other people in a more "selfish way," (in my POV it seems selfish) as in I won't do work for someone just because I don't feel like doing it. 
 
 I am pretty sure I have **"happy depression," (I am not sure atm bc about it & i am not diagnosed so please take my diagnosis w/ a grain of salt)** but I am usually happy go lucky in public even if I do feel like shit its basically where a person appears cheerful and successful on the outside while secretly experiencing severe internal distress. I do experience suicidal ideation but its completely passive. Passive suicidal ideation is when you have suicidal thoughts occur without any desire to make a plan of action to harm yourself. I often think how much better my parents (dad & grandma) would be w/o me to deal with. I'm a major factor w/ their fights & their relationship as a whole in my eyes at least. **(If you or anyone you know feels this way please call 988 or refer your friend to this number if you don't know them irl)**
 
