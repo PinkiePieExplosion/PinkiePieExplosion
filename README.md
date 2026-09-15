@@ -65,7 +65,7 @@ I am usually at docks in MY Fez skin, usually my untinted version or some other 
 
 My Main Kemonomimi types are German Shepherd & Pomeranian!! 
 
-My fursona is my Fez skin! He is also my kin, i have implemented a lot of my personality into him & I hv started to reply to Fez!
+My Kinsona & fursona is my Fez skin! I have implemented a lot of my personality into him & I hv started to reply to the name "Fez"!
 
 As you can probably tell, I LOVE Jerry from Hoppers & Mountain Dew!! My favorite flavor is Baja-Blast (sugar-free); it tastes better when it's sugar-free, ngl.
 
