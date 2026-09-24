@@ -4,17 +4,17 @@
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=312argo3gyfsw7mhwzdd6tmswldm&cover_image=true&theme=default&show_offline=true&background_color=2f4a2f&interchange=false&profanity=false&hide_remaster=false&bar_color=698769">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=312argo3gyfsw7mhwzdd6tmswldm&cover_image=true&theme=default&show_offline=true&background_color=4a2f2f&interchange=false&profanity=false&hide_remaster=false&bar_color=876969">
   </a>
 </p>
 
 <div align="center">
   
-![](https://komarev.com/ghpvc/?username=PinkiePieExplosion-CO&label=Puppies!&color=698769) <img width="40" alt="1396938799405338754" src="https://github.com/user-attachments/assets/82d92c63-87d3-41d0-b294-a9ab11ff853e" /> <img alt="GitHub followers" src="https://img.shields.io/github/followers/PinkiePieExplosion?style=flat&label=Pup-Peroni's&color=ff70ae">
+![](https://komarev.com/ghpvc/?username=PinkiePieExplosion-CO&label=Viewers!&color=ff7070) <img width="40" alt="1396938799405338754" src="https://github.com/user-attachments/assets/82d92c63-87d3-41d0-b294-a9ab11ff853e" /> <img alt="GitHub followers" src="https://img.shields.io/github/followers/PinkiePieExplosion?style=flat&label=Fez-Lover's!&color=ffee70">
 </div>
 
 <div align="center">
-<img src="https://readme-typing-svg.demolab.com?font=Comic+Sans+MS&size=15&duration=2500&pause=300&color=bcf1a6&background=f6b2be600&width=230&lines=Welcome+to+Shepherd's+GitHub!;I+hope+I+can+do+business+w/+you!;FW+(Flash+warning)+below" />
+<img src="https://readme-typing-svg.demolab.com?font=Comic+Sans+MS&size=15&duration=2500&pause=300&color=ff7070&background=f6b2be600&width=230&lines=Welcome+to+Shepherd's+GitHub!;I+hope+I+can+do+business+w/+you!;FW+(Flash+warning)+below" />
 </div>
 
  <p align="center"> 
