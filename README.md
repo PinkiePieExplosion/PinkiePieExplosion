@@ -56,17 +56,13 @@ My hyperfixation atm is TWD + Hoppers - specifically Negan, Rick, Daryl, and Liz
 
 Timezone: (UTC -04:00)
 
-I am from the USA, but I am also Irish & Ukrainian & some other stuff!
-
-I am active on Ponytown & Discord!
-
 I am usually at docks in MY Fez skin, usually my untinted version or some other version of it!
 
 <img width="30" alt="IMG_5384" src="https://github.com/user-attachments/assets/475490f1-8303-4f5b-a1bb-01c4e0ce7d3e" /> I am also a Kemonomimi!
 
 My Main Kemonomimi types are German Shepherd & Pomeranian!! 
 
-My Kinsona & fursona (& possibly fictionkin) is my Fez skin! I have implemented a lot of my personality into him & I hv started to involuntarily reply to the name "Fez"!
+My Kinsona & fursona is MV of Fez! (Y'know the red pony?) I have implemented a lot of my personality into him & I hv started to involuntarily reply to the name "Fez"! I doubt there are any others who kin Fez but if there are then I don't think I mind doubles! I don't get upset seeing Fez skins unless they have BLANTANTLY copied my skin!
 
 As you can probably tell, I LOVE Jerry from Hoppers & Mountain Dew!! My favorite flavor is Baja-Blast (sugar-free); it tastes better when it's sugar-free, ngl.
 
