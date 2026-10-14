@@ -17,8 +17,6 @@
 <img src="https://readme-typing-svg.demolab.com?font=Comic+Sans+MS&size=15&duration=2500&pause=300&color=ff7070&background=f6b2be600&width=230&lines=Welcome+to;Shepherd/Fez's+page!;I+hope+I+can+do+business+w/+you!;FW+(Flash+warning)+below" />
 </div>
 
-<img width="150" height="20" alt="blinkie-builder" src="https://github.com/user-attachments/assets/854e9f0b-6a24-4927-9ba6-587053eae01c" /> 
-
 <p align="center"> 
   <img width="1000" alt="image-2024-05-26-153929846" src="https://github.com/user-attachments/assets/6755bf62-f292-426f-88e6-9771f8de55bf" />
 
