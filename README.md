@@ -61,7 +61,7 @@ I am usually at docks in MY Fez skin, usually my untinted version or some other 
 
 My Main Kemonomimi types are German Shepherd & Pomeranian!! 
 
-My Kinsona (maybe Synpath(?) & fursona is MV of Fez! (Y'know the red pony?) I have implemented a lot of my personality into him & I have started to involuntarily reply to the name "Fez"! I doubt there are any others who kin Fez, but if there are, then I don't think I mind doubles - I never have been a kinnie before, so this could change! I don't get upset seeing Fez skins unless they have BLATANTLY copied my skin!
+My Kinsona (maybe Synpath(?) & fursona is MV of Fez! (Y'know the red pony?) I have implemented a lot of my personality into him & I have started to involuntarily reply to the name "Fez"! I doubt anyone else kins Fez, but if they do, I don't mind doubles; I've never been a kinnie before, so this could change! I don't get upset seeing Fez skins unless they have BLATANTLY copied my skin!
 
 <img width="200" alt="tumblr_7ff2efd74f8331fb8a110b638a7f8af5_0cfebffa_250" src="https://github.com/user-attachments/assets/a62a7c59-9a67-488b-b830-1fee38fd2252" />
 
@@ -69,6 +69,8 @@ My Kinsona (maybe Synpath(?) & fursona is MV of Fez! (Y'know the red pony?) I ha
 
 <details>
   <summary>──⠀BYI　  </summary>
+
+I have some sort of anxiety! I am unsure at the moment of what type but I will figure it out soon!
 
 I usually push serious stuff that has happened ***(specifically &*** **only** ***in my life)*** off if I do bring it up. I might randomly lore drop about my life if we are talking about srs topics & it correlates w/ that topic, but I won't act emotional about it. I am pretty sure I have selective sympathy & I am an over-sympathizer; I feel sorry for some people but not everyone.
 
