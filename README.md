@@ -140,7 +140,7 @@ GitHub User: [@TheUnthinkableMiracle](https://github.com/TheUnthinkableMiracle) 
 
 <div align="center"> 
   
-GitHub User: [@Hxrlequinn](https://github.com/Hxrlequinn) - Made GitHub 4 his alt. Made up
+GitHub User: [@Hxrlequinn](https://github.com/Hxrlequinn)
 </div>
 
  <p align="center"> 
