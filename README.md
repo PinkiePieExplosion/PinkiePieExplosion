@@ -10,7 +10,7 @@
 
 <div align="center"> 
 
-THANK YOU [Pt-Everybody](https://github.com/pt-everypony)
+THANK YOU [pt-everypony](https://github.com/pt-everypony)
 </div>
 
 <p align="center">
