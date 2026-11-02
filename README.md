@@ -8,6 +8,11 @@
   </a>
 </p>
 
+<div align="center"> 
+
+THANK YOU [Pt-Everybody](https://github.com/pt-everypony)
+</div>
+
 <p align="center">
 <img width="474" height="45" alt="Screenshot 2026-11-01 7 04 47 PM" src="https://github.com/user-attachments/assets/b9880a1f-e6a8-4a6a-a705-a7387f35f32a" />
 
