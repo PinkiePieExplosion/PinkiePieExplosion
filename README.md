@@ -132,7 +132,7 @@ I can make Github repositories!: Examples below!! (Whisper me on pt for discord 
 
 <div align="center">
   
-GitHub User: [@TheUnthinkableMiracle](https://github.com/TheUnthinkableMiracle) - Made up
+GitHub User: [@TheUnthinkableMiracle](https://github.com/TheUnthinkableMiracle) 
 </div>
 
  <p align="center"> 
