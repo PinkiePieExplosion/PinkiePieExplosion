@@ -97,7 +97,7 @@ I'm interested in criminals, psychology, murderers/murders & anything dealing wi
 
 DNI: Homophobes, racists, basic DNI rlly!
 
-IWC: mentioning of transformers or Godzilla TO ME DIRECTLY - These things remind me of bad people, but you can still mention them AROUND me, just not directly to me unless you're asking why they are on my IWC!
+IWC: I don't really have one at the moment! (I got over my other IWC)
 
 </details>
 
