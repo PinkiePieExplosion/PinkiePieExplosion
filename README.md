@@ -8,6 +8,9 @@
   </a>
 </p>
 
+<p align="center"> 
+List of my nominations: 
+
 <div align="center"> 
 
 THANK YOU [pt-everypony](https://github.com/pt-everypony)
