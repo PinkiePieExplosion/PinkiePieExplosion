@@ -54,7 +54,7 @@ THANK YOU [pt-everypony](https://github.com/pt-everypony)
 <details>
   <summary>──⠀Personal info　  </summary>
 
-Hi, my name is Shepherd or Fez - whichever one you prefer!
+Hi, my name is Fez (Shepherd for friends)
 
 I am 15+! (B-day June 27)
 
