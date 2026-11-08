@@ -19,6 +19,9 @@ THANK YOU [pt-everypony](https://github.com/pt-everypony)
 <p align="center">
 <img width="474" height="45" alt="Screenshot 2026-11-01 7 04 47 PM" src="https://github.com/user-attachments/assets/b9880a1f-e6a8-4a6a-a705-a7387f35f32a" />
 
+<p align="center">
+<img width="945" height="60" alt="image" src="https://github.com/user-attachments/assets/30e09d47-db98-4818-97b2-1ab5911945d8" />
+
 <div align="center">
   
 ![](https://komarev.com/ghpvc/?username=PinkiePieExplosion-CO&label=Viewers!&color=ff7070) <img width="40" alt="1396938799405338754" src="https://github.com/user-attachments/assets/82d92c63-87d3-41d0-b294-a9ab11ff853e" /> <img alt="GitHub followers" src="https://img.shields.io/github/followers/PinkiePieExplosion?style=flat&label=Fez-Lover's!&color=ffee70">
