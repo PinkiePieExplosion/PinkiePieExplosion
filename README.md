@@ -154,7 +154,7 @@ GitHub User: [@TheUnthinkableMiracle](https://github.com/TheUnthinkableMiracle)
 
 <div align="center"> 
   
-GitHub User: [@Hxrlequinn](https://github.com/Hxrlequinn)
+GitHub User: [@Atychiphxbia]([https://github.com/Atychiphxbia])
 </div>
 
  <p align="center"> 
